@@ -1,5 +1,4 @@
 CONSTITUCION POLITICA DEL ESTADO DE TAMAULIPAS
-(DECRETO NUM. 86)
 Constitución publicada en el Periódico Oficial del Gobierno de Tamaulipas, el 5 de febrero de 1921.
 JOSE MORANTE, Gobernador Provisional del Estado libre y soberano de Tamaulipas, a todos sus habitantes, sabed:
 Que el H. Congreso del Estado ha decretado lo siguiente:
