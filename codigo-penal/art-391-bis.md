@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 5 DE JUNIO DE 1999)
+ARTICULO 391 bis.- Cuando el ascendiente sin limitación de grado o pariente consanguíneo colateral o por afinidad hasta el cuarto grado de un menor, lo sustraiga o cambie del domicilio donde habitualmente reside, lo retenga o impida que regrese al mismo, sin la autorización de quienes ejercen la patria potestad o resolución de autoridad competente, no permitiendo a la madre o al padre convivir con el menor o visitarlo, se le aplicará una sanción de uno a tres años de prisión y de treinta a trescientos días multa.
+Este delito se perseguirá por querella de la parte ofendida.
