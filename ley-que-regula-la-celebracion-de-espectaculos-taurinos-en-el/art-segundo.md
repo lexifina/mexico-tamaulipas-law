@@ -1,0 +1,1 @@
+ARTICULO SEGUNDO.- Se abroga el Reglamento para las Corridas de Toros y Novilladas en el Estado de Tamaulipas, expedido el 26 de junio de 1939 y publicado en el Periódico Oficial del Estado número 69 del 30 de agosto del mismo año.
