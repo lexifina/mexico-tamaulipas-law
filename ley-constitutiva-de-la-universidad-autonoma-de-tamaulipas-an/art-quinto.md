@@ -1,3 +1,2 @@
-N. DE E., POR DECRETO NUMERO 243, PUBLICADO EN EL P.O. EL 3 DE FEBRERO DE 1968, SE ABROGA EL DECRETO 192, PUBLICADO EN EL P.O. EL 6 DE DICIEMBRE DE 1967, EN CONSECUENCIA SE CONSERVA EL TEXTO ANTERIOR A DICHA REFORMA.
-ARTICULO QUINTO.- Las funciones políticas, docentes y técnicas corresponden a la Junta de Gobierno y a la Asamblea General; los Consejos Locales tendrán competencia en todo aquello que la Ley les atribuya y que la Asamblea les encomiende.
-Las autoridades ejecutivas, que serán el Rector y los Directores, asumirán las funciones académicas y administrativas que se determinen en la Ley Orgánica.
+(REFORMADO, P.O. 4 DE OCTUBRE DE 1972)
+ARTICULO QUINTO.- Se confiere a la Universidad Autónoma de Tamaulipas el derecho exclusivo para expedir su propio Estatuto Orgánico y para reformarlo y adicionarlo mediante el procedimiento que en el mismo se señale.
