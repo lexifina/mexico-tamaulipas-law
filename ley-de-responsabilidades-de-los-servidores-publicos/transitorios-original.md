@@ -1,0 +1,13 @@
+TRANSITORIOS
+ARTICULO PRIMERO.- Se abroga la Ley sobre Responsabilidades de los Funcionarios y Empleados del Estado y Municipios de 7 de mayo de 1932; y todas aquellas disposiciones que se opongan a la presente Ley, pero independientemente de la misma, quedan preservados los derechos laborales de los trabajadores.
+ARTICULO SEGUNDO.- El Supremo Tribunal de Justicia en el Estado y la Legislatura local establecerán los órganos y sistemas a que hace referencia el Artículo 51 en un plazo no mayor de 6 meses.
+ARTICULO TERCERO.- Por lo que se refiere a las declaraciones sobre situación patrimonial efectuadas con anterioridad a la vigencia de la presente Ley, se estará a lo dispuesto en las normas vigentes en el momento de formularse dicha declaración y por cumplido éste requisito.
+ARTICULO CUARTO.- La Presidencia del Congreso, dentro del término de 15 días, designará la comisión a que se refiere el Artículo 11 de la presente Ley.
+ARTICULO QUINTO.- Los Poderes Legislativo y Judicial, en un plazo de 45 días, propondrán mediante el derecho de iniciativa que a los Diputados y Supremo Tribunal de Justicia confiere el Artículo 64 de la Constitución Política local, las reformas conducentes a sus Leyes Orgánicas.
+ARTICULO SEXTO.- Los servidores públicos obligados a presentar declaración de situación patrimonial, que conforme a otras disposiciones no la hubiesen presentado con anterioridad, tendrán un plazo de 60 días a partir de la vigencia de esta Ley para cumplir con dicho requisito.
+ARTICULO SEPTIMO.- Cuando el servidor público antes de la vigencia de la actual Ley de Responsabilidades hubiera intervenido directa o indirectamente en la designación o promoción de sus familiares dentro del área de su influencia y dicha situación continuare indefinidamente, en esta eventualidad, no existe impedimento legal, en razón del principio de la no retroactividad de las leyes.
+ARTICULO OCTAVO.- La presente Ley entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+SALON DE SESIONES DEL H. CONGRESO DEL ESTADO.
+Cd. Victoria, Tam., a 29 de febrero de 1984.- Diputado Presidente, LIC. TITO RESENDEZ TREVIÑO.- Diputado Secretario, LIC. MERCEDES DEL C. GUILLEN V.-Diputado Secretario, JOSE GUADALUPE PUGA GARCIA.- Rúbricas.
+Por tanto, mando se imprima, publique, circule y se le dé el debido cumplimiento.
+Dado en el Palacio del Poder Ejecutivo; en Ciudad Victoria, capital del Estado de Tamaulipas, a primero de marzo de mil novecientos ochenta y cuatro.- DR. EMILIO MARTINEZ MANAUTOU.- El Subsecretario General de Gobierno Encargado del Despacho por Ministerio de Ley, LIC. JESUS LAVIN SANTOS DEL PRADO.- Rúbricas.
