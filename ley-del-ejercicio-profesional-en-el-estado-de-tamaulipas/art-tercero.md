@@ -1,0 +1,1 @@
+ARTICULO TERCERO.- Se concede el término de 90 días a partir de la vigencia de este Decreto, a efecto de que los profesionistas del Estado, se inscriban en el padrón a que se refiere el Artículo 22 de esta Ley.

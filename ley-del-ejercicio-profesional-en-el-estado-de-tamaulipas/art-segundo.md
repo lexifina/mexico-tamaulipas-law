@@ -1,0 +1,1 @@
+ARTICULO SEGUNDO.- Continúan vigentes los Convenios celebrados con la federación, específicamente en lo que se refiere al registro de títulos y expedición de cédulas con efectos de patente de ejercicio profesional.
