@@ -1,0 +1,10 @@
+LEY DE DESARROLLO SOCIAL PARA EL ESTADO DE TAMAULIPAS
+Ley publicada en el Periódico Oficial del Estado de Tamaulipas, el miércoles 24 de noviembre de 2004.
+TOMAS YARRINGTON RUVALCABA, Gobernador Constitucional del Estado Libre y Soberano de Tamaulipas, a sus habitantes hace saber:
+Que el Honorable Congreso del Estado, ha tenido a bien expedir el siguiente Decreto:
+Al margen un sello que dice:- "Estados Unidos Mexicanos.- Gobierno de Tamaulipas.- Poder Legislativo.
+LA QUINCUAGESIMA OCTAVA LEGISLATURA DEL CONGRESO CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE TAMAULIPAS, EN USO DE LAS FACULTADES QUE LE CONFIEREN LOS ARTICULOS 58 FRACCION I DE LA CONSTITUCION POLITICA LOCAL; Y 119 DE LA LEY SOBRE LA ORGANIZACION Y FUNCIONAMIENTO INTERNOS DEL CONGRESO DEL ESTADO DE TAMAULIPAS, TIENE A BIEN EXPEDIR EL SIGUIENTE:
+D E C R E T O No. LVIII-840
+LEY DE DESARROLLO SOCIAL PARA EL ESTADO DE TAMAULIPAS
+Título I
+Disposiciones Generales
