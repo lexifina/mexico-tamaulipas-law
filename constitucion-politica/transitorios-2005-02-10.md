@@ -1,0 +1,3 @@
+P.O. 10 DE FEBRERO DE 2005.
+ARTÍCULO PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+ARTÍCULO SEGUNDO.- El actual nombramiento de la titular de la Procuraduría General de Justicia del Estado hecho conforme a las disposiciones constitucionales vigentes anteriores al presente Decreto, será sometido a la ratificación del Congreso, el cual deberá resolver dentro de los diez días siguientes; en caso necesario se atenderá, en lo conducente, al procedimiento previsto en el texto reformado del artículo 125 de la Constitución Política del Estado.
