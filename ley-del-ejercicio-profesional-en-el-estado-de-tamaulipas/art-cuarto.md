@@ -1,1 +1,1 @@
-ARTICULO CUARTO.- Se abroga la Ley Reglamentaria del Artículo 4o. de la Constitución General de la República en el Estado de Tamaulipas, de fecha 2 de octubre de 1926, publicada en el Periódico Oficial No. 83, del día 16 del mismo mes y año.
+ARTICULO CUARTO.- Se abroga la Ley de Reglamentaria del Artículo 4o. de la Constitución General de la República en el Estado de Tamaulipas, de fecha de 2 de octubre de 1926, publicada en el Periódico Oficial No. 83, del día 16 del mismo mes y año.
