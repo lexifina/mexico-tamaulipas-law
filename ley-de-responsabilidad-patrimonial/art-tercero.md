@@ -1,0 +1,6 @@
+ARTICULO TERCERO.- Los poderes del Estado, los organismos públicos autónomos, los Ayuntamientos y los demás entes públicos contemplados en la presente ley, incluirán, a partir del ejercicio fiscal de 2006, partidas específicas en sus proyectos de presupuesto de egresos para el cumplimiento de los hechos dañosos relacionados con la responsabilidad patrimonial del Estado.
+Al efecto, se harán estimaciones cualitativas y cuantitativas respecto a eventuales actuaciones administrativas irregulares, así como para la adquisición de pólizas de seguro o finanzas (sic) que se requieran en esta materia.
+SALON DE SESIONES DEL H. CONGRESO DEL ESTADO.- Victoria, Tam., 28 de abril del 2004.- DIPUTADO PRESIDENTE.- JOSE LUIS CASTELLANOS GONZALEZ.- Rúbrica.- DIPUTADO SECRETARIO.- LORENZO RAMIREZ DIAZ.- Rúbrica.- DIPUTADO SECRETARIO.- RENE MARTIN CANTU CARDENAS.- Rúbrica."
+Por tanto, mando se imprima, publique, circule y se le dé el debido cumplimiento.
+Dado en la residencia del Poder Ejecutivo, en Ciudad Victoria, Capital del Estado de Tamaulipas, a los cinco días del mes de enero del año dos mil cinco.
+ATENTAMENTE.- SUFRAGIO EFECTIVO. NO REELECCION.- EL GOBERNADOR CONSTITUCIONAL DEL ESTADO.- EUGENIO JAVIER HERNANDEZ FLORES.- Rúbrica.- EL SECRETARIO GENERAL DE GOBIERNO.- ANTONIO MARTINEZ TORRES.- Rúbrica.

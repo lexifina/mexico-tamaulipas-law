@@ -1,0 +1,1 @@
+ARTICULO SEGUNDO.- Los asuntos relacionados con indemnizaciones a particulares que se encuentren en trámite en los entes públicos, como consecuencia de las faltas administrativas en las que hubieren incurrido servidores públicos, se atenderán hasta su total terminación de acuerdo con las disposiciones vigentes en la fecha en que se inició el procedimiento.
