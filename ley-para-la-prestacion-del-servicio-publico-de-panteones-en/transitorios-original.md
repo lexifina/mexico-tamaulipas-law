@@ -1,0 +1,8 @@
+ARTÍCULOS TRANSITORIOS
+ARTÍCULO PRIMERO: El presente ordenamiento entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+ARTÍCULO SEGUNDO: Se abroga la Ley Reglamentaria para el Establecimiento, Administración y Funcionamiento de los Panteones en el Estado de Tamaulipas, emitida mediante Decreto número 167, del 30 de abril de 1959, publicado en el Periódico Oficial del Estado número 43 de fecha 30 de mayo de 1959; y, se derogan todas aquellas disposiciones que se opongan a lo dispuesto en la presente Ley.
+ARTÍCULO TERCERO: Los procedimientos, asuntos, trámites y actos administrativos que se encuentren en proceso al entrar en vigor la presente ley, continuarán gestionándose hasta su conclusión en los términos y disposiciones establecidos en la Ley Reglamentaria para el Establecimiento, Administración y Funcionamiento de los Panteones que se abroga.
+SALON DE SESIONES DEL H. CONGRESO DEL ESTADO.- Cd. Victoria, Tam., a 14 de mayo del año 2003.- DIPUTADO PRESIDENTE.- ALVARO VILLANUEVA PERALES.- Rubrica.- DIPUTADO SECRETARIO.- GABRIEL DE LA GARZA GARCIA - Rubrica.- DIPUTADO SECRETARIO.- CLAUDIO ALBERTO DE LEIJA HINOJOSA.- Rubrica
+Por tanto, mando se imprima, publique, circule y se le dé el debido cumplimiento.
+Dado en la residencia del Poder Ejecutivo, en Ciudad Victoria, Capital del Estado de Tamaulipas, a los catorce días del mes de mayo del año dos mil tres.
+ATENTAMENTE.- SUFRAGIO EFECTIVO. NO REELECCIÓN.- EL GOBERNADOR CONSTITUCIONAL DEL ESTADO.- TOMÁS YARRINGTON RUVALCABA.- RUBRICA.- LA SECRETARIA GENERAL DE GOBIERNO.-MERCEDES DEL CARMEN GUILLÉN VICENTE.- RUBRICA.
