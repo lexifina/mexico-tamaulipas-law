@@ -1,5 +1,5 @@
 (ADICIONADO, P.O. 25 DE DICIEMBRE DE 2001)
-ARTICULO 194-BIS.- Comete el delito de pornografía infantil:
+ARTICULO 194 BIS.- Comete el delito de pornografía infantil:
 I.- El que obligue o induzca a uno o mas menores de dieciséis años a realizar actos de exhibicionismo corporal, lascivos, sexuales o pornográficos con la finalidad de videogravarlos (sic), fotografiarlos o exhibirlos mediante anuncios impresos o electrónicos;
 II.- Toda persona que procure, permita o facilite por cualquier medio el que uno o mas menores de dieciséis años con su consentimiento o sin él, realice cualquiera de los actos señalados en la fracción anterior con los mismos fines;
 III.- Al que fije, grabe e imprima actos de exhibicionismo corporal, lascivos, sexuales o pornográficos en que participen uno o mas menores de dieciséis años;
