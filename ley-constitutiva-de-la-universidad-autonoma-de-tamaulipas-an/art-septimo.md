@@ -1,0 +1,1 @@
+ARTICULO SEPTIMO.- La administración y acrecentamiento de los bienes, posesiones y derechos de su patrimonio, lo hará libremente la Universidad, mediante la intervención de un PATRONATO, Integrado por personas que pueden o no ser universitarias.

@@ -1,0 +1,1 @@
+ARTICULO SEGUNDO.- Se encomienda a la Universidad de Tamaulipas el servicio público relativo a la conservación, investigación y difusión de la cultura, la ciencia y la técnica, a la enseñanza de las profesiones y a la difusión de los conocimientos y de las expresiones artísticas, entre la población general.
