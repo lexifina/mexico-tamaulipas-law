@@ -1,4 +1,4 @@
-LEY DE LA COMISION DE DERECHOS HUMANOS DEL ESTADO DE TAMAULIPAS
+LEY DE LA COMISIÓN DE DERECHOS HUMANOS DEL ESTADO DE TAMAULIPAS
 Ley publicada en el Periódico Oficial del Estado de Tamaulipas, el sábado 5 de febrero de 1994.
 MANUEL CAVAZOS LERMA, Gobernador Constitucional del Estado Libre y Soberano de Tamaulipas, a sus habitantes hace saber:
 Que el Honorable Congreso del Estado, se ha servido expedir el siguiente Decreto:

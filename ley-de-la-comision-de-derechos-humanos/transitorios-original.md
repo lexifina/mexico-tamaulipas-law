@@ -11,3 +11,5 @@ SALON DE SESIONES DEL H. CONGRESO DEL ESTADO.- Cd. Victoria, Tam., a 6 de Diciem
 Por tanto, mando se imprima, publique, circule y se le dé el debido cumplimiento.
 Dado en la residencia del Poder Ejecutivo, en Ciudad Victoria, Tamaulipas, a los seis días del mes de enero de mil novecientos noventa y cuatro SUFRAGIO EFECTIVO. NO REELECCION.
 El Gobernador Constitucional del Estado, MANUEL CAVAZOS LERMA.- El Secretario General de Gobierno, JAIME RODRIGUEZ INURRIGARRO.- Rúbricas.
+N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
+Artículo Unico.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
