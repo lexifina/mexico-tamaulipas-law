@@ -1,4 +1,3 @@
-(REFORMADO, P.O. 15 DE MARZO DE 1967)
+N. DE E., POR DECRETO NUMERO 243, PUBLICADO EN EL P.O. EL 3 DE FEBRERO DE 1968, SE ABROGA EL DECRETO 192, PUBLICADO EN EL P.O. EL 6 DE DICIEMBRE DE 1967, EN CONSECUENCIA SE CONSERVA EL TEXTO ANTERIOR A DICHA REFORMA.
 ARTICULO QUINTO.- Las funciones políticas, docentes y técnicas corresponden a la Junta de Gobierno y a la Asamblea General; los Consejos Locales tendrán competencia en todo aquello que la Ley les atribuya y que la Asamblea les encomiende.
-(ADICIONADO [REFORMADO], P.O. 6 DE DICIEMBRE DE 1967)
-Las Autoridades Ejecutivas, que serán el Rector, el Sub-Rector del Centro Universitario de Tampico y Ciudad Madero y los Directores, asumirán las funciones académicas y administrativas que se determinen en la Ley Orgánica de la Universidad Autónoma de Tamaulipas.
+Las autoridades ejecutivas, que serán el Rector y los Directores, asumirán las funciones académicas y administrativas que se determinen en la Ley Orgánica.
