@@ -11,3 +11,4 @@ ARTICULO NOVENO.- Se derogan las disposiciones que se opongan a lo previsto por 
 "SALON DE SESIONES DEL HONORABLE CONGRESO DEL ESTADO".- Cd. Victoria, Tam., a 4 de diciembre de 1991.- Diputada Presidente, C. AMIRA GOMEZ TUEME.- Rúbrica.- Diputado Secretario, C. TOMAS A. ROBINSON GONZALEZ.- Rúbrica.- Diputada Secretaria, C. LETICIA CAMERO GOMEZ.- Rúbrica".
 Por tanto, mando se imprima, publique, circule y se le dé el debido cumplimiento.
 Dado en la residencia del Poder Ejecutivo, en Ciudad Victoria, Tamaulipas, a los seis días del mes de diciembre de mil novecientos noventa y uno.- El Gobernador Constitucional del Estado, ING. AMERICO VILLAREAL GUERRA.- El Secretario General de Gobierno, LIC. ANIBAL PEREZ VARGAS.- Rúbricas.
+N. DE E., A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
