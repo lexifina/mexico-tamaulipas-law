@@ -1,0 +1,1 @@
+ARTICULO SEGUNDO.- Se abroga el Decreto número 288, expedido el 18 de diciembre de 1985 y publicado en el Periódico Oficial número 4 del 11 de enero de 1986, que contiene la Ley del Servicio Burocrático del Estado de Tamaulipas.

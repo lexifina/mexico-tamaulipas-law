@@ -1,0 +1,1 @@
+ARTICULO SEXTO.- Los juicios que se hayan iniciado con anterioridad al entrar en vigor el presente ordenamiento, continuarán su trámite conforme a las disposiciones de la Ley del Servicio Burocrático del Estado de Tamaulipas.

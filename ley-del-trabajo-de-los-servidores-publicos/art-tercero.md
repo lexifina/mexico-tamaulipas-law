@@ -1,0 +1,1 @@
+ARTICULO TERCERO.- El Reglamento de las Condiciones Generales de Trabajo se elaborará por la Secretaría de Administración, facultada para ello por el Gobierno del Estado y el Sindicato. Este reglamento una vez aprobado deberá depositarse en el Tribunal de Arbitraje, empezando a surtir efectos a partir de la fecha de depósito y será revisable cuando las partes así lo convengan.

@@ -1,0 +1,1 @@
+ARTICULO QUINTO.- Los trabajadores sindicalizados que hayan recibido su base bajo la vigencia del ordenamiento que ahora se abroga, continuarán su relación laboral sin que se afecten los derechos adquiridos por la vigencia de la presente Ley.
