@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 22 DE DICIEMBRE DE 1999)
+ARTICULO 102-B.- Los contribuyentes habituales u ocasionales no podrán iniciar la función en su espectáculo si no han pagado el impuesto correspondiente a la función del día o días anteriores. Los municipios del Estado a través de sus Tesorerías respectivas, están facultados para suspender la función y para clausurar el local donde se celebre el espectáculo, en los casos en que no se pague el impuesto.
+La clausura se realizará sellando las puertas de acceso al local en que se celebre el espectáculo y tendrá el carácter de provisional. La clausura sólo se levantará cuando se pague el impuesto y los accesorios causados.
