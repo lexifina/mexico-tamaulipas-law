@@ -1,0 +1,1 @@
+Art. 63 (SIC).- Para construir un cementerio se observarán las disposiciones contenidas en el Reglamento Federal de Cementerios, Inhumaciones, Exhumaciones, Conservación y Traslación de Cadáveres, y las de carácter sanitario que estuvieren vigentes ya sea Federal o del Estado.
