@@ -1,0 +1,1 @@
+ARTICULO TERCERO.- La Ley de Salud para el Estado de Tamaulipas que se abroga, se seguirá aplicando respecto de los asuntos, procedimientos y recursos administrativos que actualmente se encuentran en trámite, hasta su conclusión.
