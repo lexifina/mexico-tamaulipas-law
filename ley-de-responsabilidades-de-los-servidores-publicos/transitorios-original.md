@@ -8,6 +8,7 @@ ARTICULO SEXTO.- Los servidores públicos obligados a presentar declaración de 
 ARTICULO SEPTIMO.- Cuando el servidor público antes de la vigencia de la actual Ley de Responsabilidades hubiera intervenido directa o indirectamente en la designación o promoción de sus familiares dentro del área de su influencia y dicha situación continuare indefinidamente, en esta eventualidad, no existe impedimento legal, en razón del principio de la no retroactividad de las leyes.
 ARTICULO OCTAVO.- La presente Ley entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
 SALON DE SESIONES DEL H. CONGRESO DEL ESTADO.
-Cd. Victoria, Tam., a 29 de febrero de 1984.- Diputado Presidente, LIC. TITO RESENDEZ TREVIÑO.- Diputado Secretario, LIC. MERCEDES DEL C. GUILLEN V.-Diputado Secretario, JOSE GUADALUPE PUGA GARCIA.- Rúbricas.
+Cd. Victoria, Tam., a 29 de febrero de 1984.- Diputado Presidente, LIC. TITO RESENDEZ TREVIÑO.- Diputado Secretario, LIC. MERCEDES DEL C. GUILLEN V.-Diputado Secretario JOSE GUADALUPE PUGA GARCIA.- Rúbricas.
 Por tanto, mando se imprima, publique, circule y se le dé el debido cumplimiento.
-Dado en el Palacio del Poder Ejecutivo; en Ciudad Victoria, capital del Estado de Tamaulipas, a primero de marzo de mil novecientos ochenta y cuatro.- DR. EMILIO MARTINEZ MANAUTOU.- El Subsecretario General de Gobierno Encargado del Despacho por Ministerio de Ley, LIC. JESUS LAVIN SANTOS DEL PRADO.- Rúbricas.
+Dado en el Palacio del Poder Ejecutivo; en Ciudad Victoria, capital del Estado de Tamaulipas, a primero de marzo de mil novecientos ochenta y cuatro.- El Gobernador Constitucional del Estado, DR. EMILIO MARTINEZ MANAUTOU.- El Subsecretario General de Gobierno Encargado del Despacho por Ministerio de Ley, LIC. JESUS LAVIN SANTOS DEL PRADO.- Rúbricas.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
