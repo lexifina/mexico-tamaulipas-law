@@ -7,4 +7,5 @@ Por tanto, mando se imprima, publique, circule y se le dé el debido cumplimient
 Dado en la residencia del Poder Ejecutivo en Ciudad Victoria, Tamaulipas, a los quince días del mes de octubre de mil novecientos noventa y siete.
 ATENTAMENTE.
 "SUFRAGIO EFECTIVO. NO REELECCION."
-El Gobernador Constitucional del Estado, MANUEL CAVAZOS LERMA.- EI Secretario General de Gobierno, JAIME RODRIGUEZ INURRIGARRO.- Rúbricas.
+El Gobernador Constitucional del Estado, MANUEL CAVAZOS LERMA.- El Secretario General de Gobierno, JAIME RODRIGUEZ INURRIGARRO.- Rúbricas.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
