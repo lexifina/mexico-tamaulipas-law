@@ -1,0 +1,1 @@
+ARTICULO TERCERO.- El término previsto en el artículo 74 de esta ley, para la presentación de la propuesta de los Ayuntamientos, respecto a las tablas de valores, por única ocasión se amplía para que la misma sea presentada dentro de los 10 días hábiles siguiente a la publicación de esta Ley.

@@ -1,0 +1,1 @@
+ARTICULO PRIMERO.- La presente Ley entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado, excepto las disposiciones de los artículos 7, 62 fracción VIII y 73, que entrarán en vigor a partir del 1º de enero del año 2002.

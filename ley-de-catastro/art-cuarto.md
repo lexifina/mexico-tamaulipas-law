@@ -1,0 +1,2 @@
+ARTICULO CUARTO.- Los propietarios o poseedores de bienes inmuebles ubicados en el territorio del Estado, contarán con un término de 60 días hábiles a partir de la vigencia de ésta Ley, para inscribirlos en el catastro, cuando no la hubieren realizado.
+Tratándose de la propiedad ejidal, la información será recabada por la autoridad catastral municipal, de las inscripciones que aparezcan en el Registro Agrario Nacional, y en el Registro Público de la Propiedad y del Comercio.
