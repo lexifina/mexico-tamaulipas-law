@@ -1,0 +1,4 @@
+P.O. 24 DE AGOSTO DE 1983.
+1o.- Para los efectos de este decreto y por lo que se refiere al proceso electoral del año en curso, la Comisión Estatal Electoral instalará el Comité Distrital Electoral del Décimo Quinto Distrito, en un término que no exceda de tres días contados a partir de la vigencia del presente decreto.
+2o.- Para los efectos de este decreto y por lo que se refiere al proceso electoral del presente año, los partidos políticos podrán hacer la designación de sus comisionados y sus respectivos suplentes, ante la Comisión Estatal Electoral, para integrar el Comité Distrital Electoral del Décimo Quinto Distrito, en un término de quince días contados a partir de la vigencia del presente decreto.
+3o.- El presente decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
