@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 3 DE DICIEMBRE DE 1941)
+Art. 146 Bis.- No obstante lo expresado en los artículos anteriores, con objeto de que la acción sanitaria encomendada al Gobierno del Estado se intensifique, se faculta al Ejecutivo para celebrar convenios con el Gobierno Federal sobre coordinación de los servicios sanitarios, reservándose al propio Ejecutivo la intervención que estime necesaria en la designación de personal y funcionamiento del Departamento respectivo.
+CAPITULO III
+De las vías de comunicación
