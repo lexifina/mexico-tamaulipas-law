@@ -5,4 +5,5 @@ TERCERO.- Se derogan las demás disposiciones legales que se opongan a la presen
 "SALON DE SESIONES DEL H. CONGRESO DEL ESTADO"
 Cd. Victoria, Tam., a 5 de septiembre de 1984.- Diputado Presidente, C.P. MARIO ALEJO SALINAS PEÑA.- Diputado Secretario, NATALIO LABASTIDA GARCIA.- Diputado Secretario, FRANCISCO J. GARCIA LOZANO.- Rúbricas.
 Por tanto, mando se imprima, publique, circule y se le dé el debido cumplimiento.
-Dado en el Palacio del Poder Ejecutivo, en Ciudad Victoria, capital del Estado de Tam., a los trece días del mes de septiembre de mil novecientos ochenta y cuatro.- DR. EMILIO MARTINEZ MANAUTUO.- El Secretario General de Gobierno, LIC. JOAQUIN CONTRERAS CANTU.- Rúbricas.
+Dado en el Palacio del Poder Ejecutivo, en Ciudad Victoria, capital del Estado de Tamaulipas, a los trece días del mes de septiembre de mil novecientos ochenta y cuatro.- DR. EMILIO MARTINEZ MANAUTUO.- El Secretario General de Gobierno, LIC. JOAQUIN CONTRERAS CANTU.- Rúbricas.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
