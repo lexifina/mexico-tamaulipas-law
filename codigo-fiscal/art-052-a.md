@@ -1,2 +1,1 @@
-(ADICIONADO, P.O. 18 DE DICIEMBRE DE 1993)
-ARTICULO 52-A.- Las personas físicas y las personas morales que efectúen los pagos a que se refiere el artículo 245 de la Ley de Hacienda del Estado, por un monto equivalente a más de 62,500 salarios mínimos en un año de calendario, están obligados a informar sobre el cumplimiento de las disposiciones establecidas en el Capítulo XIII de dicha ley, por contador público autorizado.
+ARTICULO 52-A.- (DEROGADO, P.O. 30 DE DICIEMBRE DE 1995)
