@@ -1,0 +1,1 @@
+ARTICULO SEGUNDO.- El Consejo Asesor para la Integración, Asistencia, Promoción y Defensa de los Derechos de las Personas Adultas Mayores deberá constituirse en un plazo no mayor de treinta días, a partir de la entrada en vigor de la presente Ley.
