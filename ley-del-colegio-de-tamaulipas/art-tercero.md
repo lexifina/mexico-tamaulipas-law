@@ -1,0 +1,1 @@
+ARTICULO TERCERO.- Para la integración de la primera Junta de Gobierno de El Colegio de Tamaulipas, el Congreso del Estado elegirá por única vez a cuatro miembros que durarán en su cargo un año; a cuatro miembros que durarán en su cargo tres años y a cuatro miembros que duraran en su cargo cinco años.

@@ -1,0 +1,1 @@
+ARTICULO SEGUNDO.- Los integrantes de la Junta de Gobierno serán electos por única vez por el Congreso del Estado a propuesta del Titular del Poder Ejecutivo del Estado, atendiendo al cumplimiento de los requisitos señalados en el Artículo 6º.

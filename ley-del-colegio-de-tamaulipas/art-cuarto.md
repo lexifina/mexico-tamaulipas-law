@@ -1,0 +1,1 @@
+ARTICULO CUARTO.- La Junta de Gobierno procederá de inmediato a la elección de Rector de El Colegio atendiendo al cumplimiento de los requisitos señalados en el artículo 12; exceptuando por única vez al o los candidatos del que se establece en la fracción VI.
