@@ -1,0 +1,1 @@
+ARTICULO SEGUNDO.- En tanto se expide el reglamento a que hace mención esta ley, se continuarán aplicando, de manera supletoria, en todo lo que no se oponga a la misma, el Reglamento de Tránsito y Transporte del Estado de Tamaulipas, los acuerdos relativos y demás disposiciones aplicables.

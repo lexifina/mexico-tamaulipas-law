@@ -1,0 +1,5 @@
+ARTICULO SEXTO.- A efecto de dar cumplimiento a lo señalado en el Capítulo Único del Título Octavo, los prestadores actuales del servicio, en cualquiera de sus modalidades, contarán con un plazo de ciento ochenta días, a partir de que entre en vigor el Reglamento de la Ley.
+SALON DE SESIONES DEL H. CONGRESO DEL ESTADO.- Cd. Victoria, Tam., a 19 de Diciembre del Año 2001.- DIPUTADA PRESIDENTA.- LIC. MERCEDES DEL CARMEN GUILLÉN VICENTE.-Rúbrica.- DIPUTADA SECRETARIA.- LIC. BLANCA GUADALUPE VALLES RODRÍGUEZ.-Rúbrica.-DIPUTADO SECRETARIO.- C. UBALDO GUZMÁN QUINTERO.-Rúbrica.
+Por tanto, mando se imprima, publique, circule y se le dé el debido cumplimiento.
+Dado en la residencia del Poder Ejecutivo, en Ciudad Victoria, Capital del Estado de Tamaulipas, a los once días del mes de febrero del dos mil dos.-
+ATENTAMENTE.-SUFRAGIO EFECTIVO. NO REELECCIÓN. EL GOBERNADOR CONSTITUCIONAL DEL ESTADO.- TOMAS YARRINGTON RUVALCABA.-Rúbrica.- LA SECRETARIA GENERAL DE GOBIERNO.- MERCEDES DEL CARMEN GUILLÉN VICENTE.-Rúbrica.

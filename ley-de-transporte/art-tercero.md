@@ -1,0 +1,1 @@
+ARTICULO TERCERO.- Se deroga la Ley de Tránsito y Transporte, en lo referente a Transporte Público, publicada en el Periódico Oficial del Estado Número uno extraordinario de fecha lunes 30 de Noviembre de 1987.
