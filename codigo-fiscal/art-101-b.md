@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 25 DE DICIEMBRE DE 1996)
+ARTICULO 101-B.- Se sancionará con prisión de 1 a 5 años al servidor público que amenazare de cualquier modo a un contribuyente o a sus representantes o dependientes, con formular por sí o por medio de la dependencia de su adscripción, una denuncia, o querella al Ministerio Público para que se ejercite acción penal por la posible comisión de delitos fiscales.
