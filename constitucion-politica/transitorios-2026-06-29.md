@@ -1,0 +1,4 @@
+P.O. 29 DE JUNIO DE 2026.
+[N. DE E. TRANSITORIO DEL "DECRETO LEGISLATIVO NÚMERO 197 QUE EMITE LA SEXAGÉSIMA SEXTA LEGISLATURA CONSTITUCIONAL DEL CONGRESO DEL ESTADO LIBRE Y SOBERANO DE GUANAJUATO, POR EL QUE SE REFORMAN Y SE ADICIONAN DIVERSAS DISPOSICIONES A LA LEY DEL TRABAJO DE LOS SERVIDORES PÚBLICOS AL SERVICIO DEL ESTADO Y DE LOS MUNICIPIOS; Y SE ADICIONA UN ARTÍCULO 64 BIS A LA LEY DE RESPONSABILIDADES ADMINISTRATIVAS PARA EL ESTADO DE GUANAJUATO".]
+Artículo Primero. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Gobierno del Estado de Guanajuato.
+Artículo Segundo. Los poderes Ejecutivo, Legislativo, Judicial, organismos autónomos y los municipios, en el ámbito de sus respectivas competencias deberán adecuar su normativa interna en un plazo de noventa días hábiles posteriores a la entrada en vigor del presente Decreto.
