@@ -9,7 +9,7 @@ Art. 7º.- Los recursos de casación y súplica pendientes al comenzar a regir e
 Art. 8º.- Mientras no se expida la Ley Orgánica de los Tribunales del Estado, los Juzgados menores que funcionan actualmente en algunas cabeceras de Fracción, continuarán como Juzgados de Primera Instancia, con igual competencia y jurisdicción que los Jueces de Primera Instancia que hoy existen, y sostenidos por los fondos municipales.
 Art. 9º.- Las cuentas del Gobierno y Municipales correspondientes al tiempo que no ha habido Congreso, serán enviadas a este en la primera quincena de mayo próximo para su revisión.
 Dado en el Salón de Sesiones del H. Congreso del Estado de Tamaulipas, a los veintisiete días del mes de enero de mil novecientos veintiuno.
-Por el Décimocuarto Distrito Electoral, Donaciano de Lassaulx, Diputado Presidente.
+Por el Décimocuarto Distrito Electoral. Donaciano de Lassaulx, Diputado Presidente.
 Por el Segundo Distrito Electoral, Ing. José F. Montesinos, Diputado Vicepresidente.
 Dr. Antonio Valdez Rojas, Diputado por el Primer Distrito Electoral.
 Cipriano Martínez, Diputado por el Tercer Distrito Electoral.
