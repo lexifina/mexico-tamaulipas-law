@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 30 DE DICIEMBRE DE 2004)
+ARTÍCULO 391 Ter.- Si el secuestrador deja en libertad de manera espontánea al secuestrado dentro de los tres días siguientes a la comisión del delito, sin haber logrado alguno de los propósitos previstos en el artículo 391, se le impondrán de cuatro a doce años de prisión y multa de trescientos a mil días de salario. Se aplicará la penalidad prevista en el artículo 391 cuando exista alguna de las circunstancias señaladas en el artículo 391 Bis de este Código.
