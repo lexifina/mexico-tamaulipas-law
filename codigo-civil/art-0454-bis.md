@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 5 DE JUNIO DE 1999)
+ART. 454 bis.- Los responsables de los hospicios y de las casas de beneficencia, donde se reciban menores que hayan sido objeto de la violencia intrafamiliar a que se refiere el artículo 298 ter de este ordenamiento, tendrán la custodia de éstos en los términos que prevengan las leyes y los estatutos de la institución. En todo caso darán aviso al Ministerio Público y a quien corresponda el ejercicio de la patria potestad y no se encuentre señalado como responsable del evento de violencia intrafamiliar.
