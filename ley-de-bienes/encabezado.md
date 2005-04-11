@@ -1,0 +1,8 @@
+LEY DE BIENES DEL ESTADO Y MUNICIPIOS DE TAMAULIPAS
+Ley publicada en el Anexo del Periódico Oficial del Estado de Tamaulipas, el martes 11 de enero de 2005.
+EUGENIO JAVIER HERNANDEZ FLORES, Gobernador Constitucional del Estado Libre y Soberano de Tamaulipas, a sus habitantes hace saber:
+Que el Honorable Congreso del Estado, ha tenido a bien expedir el siguiente Decreto:
+Al margen un sello que dice.- "Estados Unidos Mexicanos.- Gobierno de Tamaulipas.- Poder Legislativo.
+QUINCUAGESIMA OCTAVA LEGISLATURA DEL CONGRESO CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE TAMAULIPAS, EN USO DE LAS FACULTADES QUE LE CONFIERE EL ARTICULO 58 FRACCION I DE LA CONSTITUCION POLITICA LOCAL; Y EL ARTICULO 119 DE LA LEY SOBRE LA ORGANIZACION Y FUNCIONAMIENTO INTERNOS DEL CONGRESO DEL ESTADO DE TAMAULIPAS, TIENE A BIEN EXPEDIR EL SIGUIENTE:
+D E C R E T O No. LVIII-1143
+LEY DE BIENES DEL ESTADO Y MUNICIPIOS DE TAMAULIPAS.
