@@ -86,3 +86,4 @@ ARTICULO NOVENO.- Con base en la disponibilidad presupuestal prevista para la Di
 El Instituto de Investigaciones Parlamentarias y sobre las Finanzas Públicas, la Unidad de Formación Permanente y la Contraloría Interna previstos en los artículos 52, párrafo 2; y 59, párrafo 2, y 66 de esta ley, se establecerán de acuerdo a la disponibilidad presupuestal con que cuente el Congreso del Estado.
 En todo caso se otorgará prioridad a la creación y funcionamiento del Instituto.
 SALON DE SESIONES DEL H. CONGRESO DEL ESTADO.- Victoria, Tam., a 6 de julio de 2004.-DIPUTADO PRESIDENTE.-PEDRO ALONSO PEREZ.- Rúbrica.- DIPUTADO SECRETARIO.- HECTOR AURELIO CASTILLO TOVAR.- Rúbrica.- DIPUTADA SECRETARIA.- MARIA LETICIA TERAN RODRÍGUEZ.- Rúbrica.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
