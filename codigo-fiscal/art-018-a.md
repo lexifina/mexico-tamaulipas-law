@@ -8,5 +8,5 @@ Los valores de bienes u operaciones se actualizarán de acuerdo con los (sic) di
 Los índices mencionados son los que determine el Banco de México calculados en los términos del artículo 20 Bis del Código Fiscal de la Federación y se publican en el Diario Oficial de la Federación.
 (ADICIONADO, P.O. 18 DE DICIEMBRE DE 1993)
 Las cantidades actualizadas conservan la naturaleza jurídica que tenían antes de la actualización. Cuando la actualización se realice en pagos provisionales, su importe no será deducible ni acreditable.
-TITULO II
-De los Derechos y Obligaciones de los Contribuyentes
+(ADICIONADO, P.O. 14 DE DICIEMBRE DE 2005)
+Cuando el resultado de la operación a que se refiere el primer párrafo de este artículo sea menor a 1, el factor de actualización que se aplicará al monto de las contribuciones, aprovechamientos y devoluciones a cargo del fisco estatal, así como los valores de bienes en operaciones de que se traten, será 1.
