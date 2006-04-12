@@ -10,7 +10,7 @@ ARTICULO CUARTO.- Una vez instalada la Junta de Coordinación Política, ésta s
 ARTICULO QUINTO.-. En tanto se aprueba la nueva conformación de las comisiones y comités de acuerdo por lo dispuesto en esta ley, los asuntos turnados originalmente a las comisiones permanentes y especiales vigentes al día de aprobación del presente ordenamiento, seguirán atendiéndose por la Diputación Permanente.
 Una vez aprobada la conformación de las comisiones y comités previstas en esta ley, las mismas se harán cargo de los asuntos turnados a las comisiones permanentes y especiales de la ley que se abroga, de acuerdo con los siguientes criterios:
 COMISIONES O COMITES COMISIONES CONFORME A LA
-CONFORME A LA LEY QUE SE LEY Y REGLAMENTO QUE SE
+CONFORME A LA LEY QUE SELEY Y REGLAMENTO QUE SE
 EXPIDEABROGAN
 - De Gobernación- De Gobernación,
 - De Protección Civil,
@@ -18,7 +18,7 @@ EXPIDEABROGAN
 Procesos Electorales
 - De Seguridad Pública y - De Seguridad Pública
 Prevención y Readaptación Social- De Prevención y Readaptación Social
-- De Finanzas, Planeación, - De Hacienda y Crédito Público
+- De Finanzas, Planeación,- De Hacienda y Crédito Público
 Presupuesto y Deuda Pública- De Planeación
 - De Administración- De Previsión y Seguridad Social,
 en lo relativo a la Unidad de Previsión y
