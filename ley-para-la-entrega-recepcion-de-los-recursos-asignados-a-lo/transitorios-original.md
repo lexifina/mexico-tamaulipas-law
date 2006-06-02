@@ -6,3 +6,4 @@ SALON DE SESIONES DEL H. CONGRESO DEL ESTADO.- Cd. Victoria, Tam., a 5 de noviem
 Por tanto, mando se imprima, publique, circule y se le dé el debido cumplimiento.
 Dado en la residencia del Poder Ejecutivo, en Ciudad Victoria, Capital del Estado de Tamaulipas, a los seis días del mes de noviembre del año dos mil tres.
 ATENTAMENTE.- SUFRAGIO EFECTIVO NO REELECCION.- EL GOBERNADOR CONSTITUCIONAL DEL ESTADO.- TOMAS YARRINGTON RUVALCABA.- Rúbrica.- LA SECRETARIA GENERAL DE GOBIERNO.- MERCEDES DEL CARMEN GUILLEN VICENTE.- Rúbrica.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
