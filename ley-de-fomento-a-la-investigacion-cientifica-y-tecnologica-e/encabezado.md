@@ -1,8 +1,7 @@
-LEY DE FOMENTO A LA INVESTIGACION CIENTIFICA Y TECNOLOGICA EN EL ESTADO DE TAMAULIPAS
-Ley publicada en el Anexo al Periódico Oficial del Estado de Tamaulipas, el jueves 19 de agosto de 2004.
-TOMAS YARRINGTON RUVALCABA, Gobernador Constitucional del Estado Libre y Soberano de Tamaulipas, a sus habitantes hace saber:
-Que el Honorable Congreso del Estado, ha tenido a bien expedir el siguiente Decreto:
-Al margen un sello que dice:- "Estados Unidos Mexicanos.- Gobierno de Tamaulipas.- Poder Legislativo.
-LA QUINCUAGESIMA OCTAVA LEGISLATURA CONSTITUCIONAL DEL CONGRESO DEL ESTADO LIBRE Y SOBERANO DE TAMAULIPAS, EN USO DE LAS FACULTADES QUE LE CONFIERE EL ARTICULO 58 FRACCION I DE LA CONSTITUCION POLITICA DEL ESTADO, TIENE A BIEN EXPEDIR EL SIGUIENTE:
-D E C R E T O No. 730
-LEY DE FOMENTO A LA INVESTIGACION CIENTIFICA Y TECNOLOGICA EN EL ESTADO DE TAMAULIPAS
+REGLAMENTO DEL COMITE DE ADMISION Y EVALUACION DEL PROGRAMA DE DESARROLLO SOCIAL "MUJERES TRABAJADORAS COMPROMETIDAS" DEL ESTADO DE MEXICO
+Reglamento publicado en la Sección Cuarta de la Gaceta Oficial del Gobierno del Estado de México, el lunes 16 de mayo de 2011.
+EL COMITÉ DE ADMISIÓN Y EVALUACIÓN DEL PROGRAMA DE DESARROLLO SOCIAL "MUJERES TRABAJADORAS COMPROMETIDAS", DE CONFORMIDAD CON LO ESTABLECIDO EN LOS ARTÍCULOS 10 FRACCIONES IX Y XI Y 21 DE SU REGLAMENTO, ASÍ COMO LO DISPUESTO EN EL QUINTO TRANSITORIO DE LAS REGLAS DE OPERACIÓN DEL PROGRAMA DE DESARROLLO SOCIAL "MUJERES TRABAJADORAS COMPROMETIDAS", Y
+CONSIDERANDO.
+En mérito de lo expuesto y con fundamento en las disposiciones legales y consideraciones previamente señaladas, el Comité ha tenido a bien emitir el siguiente:
+Acuerdo por el que se expide el Reglamento del Comité de Admisión y Evaluación del programa de desarrollo social "Mujeres Trabajadoras Comprometidas", para quedar como sigue:
+REGLAMENTO DEL COMITÉ DE ADMISIÓN Y EVALUACIÓN DEL PROGRAMA DE DESARROLLO SOCIAL "MUJERES TRABAJADORAS COMPROMETIDAS".
