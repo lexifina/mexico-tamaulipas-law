@@ -1,5 +1,5 @@
 LEY PARA EL FOMENTO Y DESARROLLO ARTESANAL DEL ESTADO DE TAMAULIPAS.
-Ley publicada en el Periódico Oficial del Estado de Tamaulipas, el jueves 7 de Octubre de 2004.
+Ley publicada en el Periódico Oficial del Estado de Tamaulipas, el miércoles 7 de Octubre de 2004.
 TOMAS YARRINGTON RUVALCABA, Gobernador Constitucional del Estado Libre y Soberano de Tamaulipas, a sus habitantes hace saber:
 Que el Honorable Congreso del Estado, ha tenido a bien expedir el siguiente Decreto:
 Al margen un sello que dice:- "Estados Unidos Mexicanos.- Gobierno de Tamaulipas.- Poder Legislativo.
