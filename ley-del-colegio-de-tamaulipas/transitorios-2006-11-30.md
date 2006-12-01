@@ -1,0 +1,5 @@
+P.O. 30 DE NOVIEMBRE DE 2006.
+ARTÍCULO PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+ARTÍCULO SEGUNDO.- Se derogan las disposiciones que se opongan al presente Decreto.
+ARTÍCULO TERCERO.- Los miembros de la junta de Gobierno de El Colegio de Tamaulipas que se encuentren en funciones, concluirán el ejercicio de su cargo con la entrada en vigor de este Decreto. El Ejecutivo del Estado hará las designaciones que le correspondan y solicitará las propuestas de los sectores académico, social y privado para integrar la Junta de Gobierno de El Colegio de Tamaulipas, con el objeto de asegurar la instalación del nuevo órgano de gobierno dentro de los treinta días posteriores a la entrada en vigor de este Decreto.
+ARTÍCULO CUARTO.- Los derechos laborales que hubiere adquirido el personal administrativo y académico de El Colegio de Tamaulipas no se afectarán con motivo de la expedición del presente Decreto, sin demérito de la sujeción al orden jurídico estatal en términos de la fracción VI del artículo 116 de la Constitución Política de los Estados Unidos Mexicanos.
