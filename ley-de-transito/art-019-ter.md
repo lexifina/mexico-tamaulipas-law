@@ -1,4 +1,4 @@
-(ADICIONADO, P.O. 13 DE MARZO DE 2007)
+(REFORMADO, P.O. 13 DE MARZO DE 2007)
 ARTICULO 19 Ter.- Se prohíbe a los conductores de vehículos y motocicletas:
 I. Conducir en estado de ineptitud, en estado de ebriedad, en evidente estado de ebriedad, o bajo la influencia de estupefacientes u otras substancias tóxicas.
 Se considera:

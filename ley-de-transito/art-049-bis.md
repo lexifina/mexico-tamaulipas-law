@@ -1,4 +1,4 @@
-(ADICIONADO, P.O. 13 DE MARZO DE 2007)
+(REFORMADO, P.O. 13 DE MARZO DE 2007)
 ARTICULO 49 BIS.- Se impondrán las siguientes sanciones:
 I. Multa equivalente a:
 a).- Diez salarios mínimos vigente en la Capital del Estado, al menor de dieciocho años que conduzca vehículos de motor o motocicletas y no cuente con la licencia de manejo correspondiente, quien será remitido a la autoridad correspondiente, la que deberá hacer del conocimiento de los padres o tutores, quienes ejerzan la patria potestad o tengan la custodia, de la infracción cometida y la sanción correspondiente;
