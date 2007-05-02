@@ -2,10 +2,10 @@ TRANSITORIOS:
 ARTICULO PRIMERO.- El presente Decreto entrará en vigor el día de su publicación en el Periódico Oficial del Estado.
 ARTICULO SEGUNDO.- Se abroga la Ley Orgánica Municipal expedida por el XXXVII Congreso Constitucional del Estado, con fecha 10 de octubre de 1941.
 ARTICULO TERCERO.- Se abroga el Decreto No. 407, publicado en el Periódico Oficial del Estado No. 104, del 28 de diciembre de 1977.
-ARTICULO CUARTO.- Se derogan los Artículos 35, fracción III 38, 39 y 40 de la Ley de la Policía Preventiva de los Municipios del Estado, así como todas las disposiciones que se opongan a este Código.
+ARTICULO CUARTO.- Se derogan los Artículos 35, fracción III, 38, 39 y 40, de la Ley de la Policía Preventiva de los Municipios del Estado, así como todas las disposiciones que se opongan a este Código.
 (F. DE E., P.O. 2 DE JUNIO DE 1984)
 ARTICULO QUINTO.- Los municipios actuales seguirán subsistiendo aunque no reúnan los requisitos señalados en el Artículo 11 de este Código; asimismo, su territorio es el que se encuentra comprendido dentro de los límites reconocidos y seguirán conservando las cabeceras con la denominación política que actualmente ostentan.
-ARTICULO SEXTO.- El aspecto sustantivo y de procedimiento a que se refiere la Ley de Ingresos de los Municipios para el ejercicio fiscal de 1984; se regirán por lo dispuesto en el Título Segundo del presente Código.
+ARTICULO SEXTO.- El aspecto sustantivo y de procedimiento a que se refiere la Ley de Ingresos de los Municipios para el ejercicio fiscal de 1984, se regirán por lo dispuesto en el Título Segundo del presente Código.
 ARTICULO SEPTIMO.- En un plazo de seis meses a partir de la iniciación de la vigencia de este Código, el Gobierno del Estado y los Municipios deberán celebrar los convenios y acuerdos de coordinación, relativos a la prestación de los servicios que se realizarán con el concurso de ambas entidades.
 ARTICULO OCTAVO.- Dentro del término de seis meses a partir de la iniciación de vigencia de este Código, los Ayuntamientos deberán de proceder a constituir un órgano de control y evaluación del gasto público municipal. Asimismo, para los efectos del Capítulo II del Título Cuarto, los Ayuntamientos deberán formular, aprobar y publicar su respectivo Plan Municipal de Desarrollo, dentro del plazo citado.
 ARTICULO NOVENO.- El Tribunal de Arbitraje para los Trabajadores al Servicio de los Municipios de Victoria, Tampico, Nuevo Laredo, Reynosa, Matamoros y El Mante, se transforma para quedar como el Tribunal de Arbitraje para los Trabajadores al Servicio de los Municipios del Estado, con la competencia y estructura que se prevé en el Capítulo XII del Título Sexto de este Código.
@@ -15,4 +15,4 @@ SALON DE SESIONES DEL H. CONGRESO DEL ESTADO.
 Cd. Victoria, Tam., a 2 de febrero de 1984.- Diputado Presidente, LIC. TITO RESENDEZ TREVIÑO.- Diputado Secretario, LIC. MERCEDES DEL CARMEN GUILLEN VICENTE.- Diputado Secretario, J. GUADALUPE PUGA GARCIA.- Rúbricas.
 Por tanto mando se imprima, publique, circule y se le dé el debido cumplimiento.
 Dado en el Palacio del Poder Ejecutivo, en Ciudad Victoria, capital del Estado de Tamaulipas, a los tres días del mes de febrero de mil novecientos ochenta y cuatro.- DR. EMILIO MARTINEZ MANAUTOU.- El Secretario General de Gobierno, LIC. JOSE BRUNO DEL RIO CRUZ.- Rúbricas-
-N DE E., A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE CODIGO.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE CODIGO.
