@@ -1,3 +1,3 @@
 (ADICIONADO, P.O. 5 DE JUNIO DE 1999)
-ART. 298 ter.- Los integrantes de la familia están obligados a evitar conductas que generen violencia intrafamiliar.
+ART. 298 TER.- Los integrantes de la familia están obligados a evitar conductas que generen violencia intrafamiliar.
 Por violencia intrafamiliar se considera el uso de la fuerza física o moral, así como de las omisiones graves, relacionada con sus obligaciones legales que de manera reiterada ejerza un miembro de la familia en contra de otro integrante de la misma, que atente contra su integridad física o psíquica o ambas independientemente de que pueda producir o no lesiones; siempre y cuando el agresor y el agredido habiten en el mismo domicilio y exista una relación de parentesco, matrimonio o concubinato.

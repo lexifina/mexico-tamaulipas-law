@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 4 DE JULIO DE 2007)
+ART. 1164 BIS.- No estará obligado a la reparación del daño moral quien ejerza sus derechos de opinión, critica, expresión e información, en los términos y con las limitaciones de los artículos 6o. y 7o. de la Constitución General de la República.
+En todo caso, quien demande la reparación del daño moral por responsabilidad contractual o extracontractual deberá acreditar plenamente la ilicitud de la conducta del demandado y el daño que directamente le hubiere causado tal conducta.
+En ningún caso se considerarán ofensas al honor las opiniones desfavorables de la crítica literaria, artística, histórica, científica o profesional. Tampoco se considerarán ofensivas las opiniones desfavorables realizadas en cumplimiento de un deber o ejerciendo un derecho cuando el modo de proceder o la falta de reserva no tenga un propósito ofensivo.
