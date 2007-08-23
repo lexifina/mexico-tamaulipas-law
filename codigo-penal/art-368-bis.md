@@ -6,4 +6,3 @@ ARTICULO 368 bis.- Por violencia intrafamiliar se considera el uso de la fuerza 
 Comete el delito de violencia intrafamiliar el cónyuge, concubina o concubinario; pariente consanguíneo en línea recta ascendente o descendente sin limitación de grado; pariente colateral consanguíneo o afín hasta el cuarto grado, adoptante o adoptado, que habite en la misma casa de la víctima.
 (REFORMADO, P.O. 14 DE MARZO DE 2007)
 A quien comete el delito de violencia intrafamiliar se le impondrá de uno a cinco años de prisión y perderá el derecho de pensión alimenticia. Asimismo se le sujetará a tratamiento psicológico especializado.
-Este delito se perseguirá por querella de la parte ofendida, salvo que la víctima sea menor de edad o incapaz, en que se perseguirá de oficio.
