@@ -9,4 +9,3 @@ ARTICULO SEPTIMO:- Las disposiciones de carácter penal que se encuentren previs
 "SALON DE SESIONES DEL H. CONGRESO DEL ESTADO.- Cd. Victoria, Tamaulipas a 24 de Octubre de 1986.- Diputado Presidente, Dr. Carlos Romo Juárez.- Diputado Secretario, Profr. y Lic. Rigoberto García García.- Diputado Secretario, J. Guadalupe Puga García.- Rúbricas".
 Por tanto, mando se imprima, publique, circule y se le dé el debido cumplimiento.
 "Dado en la residencia del Poder Ejecutivo, en Ciudad Victoria, Capital del Estado de Tamaulipas, a los once días del mes de Noviembre de mil novecientos ochenta y seis.- EL GOBERNADOR CONSTITUCIONAL DEL ESTADO.- Dr. EMILIO MARTINEZ MANAUTOU.- EL SECRETARIO GENERAL DE GOBIERNO.- Lic. ROBERTO PERALES MELENDEZ.- Rúbricas".
-N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE CODIGO.
