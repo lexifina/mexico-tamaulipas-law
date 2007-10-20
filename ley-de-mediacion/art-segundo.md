@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO. El Instituto de Mediación del Estado de Tamaulipas se establecerá con base en la disponibilidad presupuestal. Hasta en tanto no sea establecido, sus facultades serán asumidas por el Instituto para la Reforma Integral del Sistema de Seguridad y Justicia.
