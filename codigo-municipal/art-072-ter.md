@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 25 DE DICIEMBRE DE 2001)
-ARTICULO 72 ter.- Para ser Contralor se requiere reunir los requisitos señalados en el Artículo 67 de este Código y, en su caso, poseer título en profesión afín al cargo.
+(REFORMADO, P.O. 12 DE DICIEMBRE DE 2007)
+ARTICULO 72 ter.- Para ser Contralor Municipal se requiere reunir los requisitos señalados en el artículo 67 de este Código. En los municipios con una población que exceda de 50,000 habitantes, se requiere poseer título de Contador Público, Licenciado en Administración Pública, Licenciado en Economía, Licenciado en Finanzas, Licenciado en Administración de Empresas u otros estudios técnicos o profesionales en materias análogas.
