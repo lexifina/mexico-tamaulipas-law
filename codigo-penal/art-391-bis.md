@@ -1,5 +1,5 @@
 (REFORMADO Y REUBICADO, P.O. 30 DE DICIEMBRE DE 2004)
-ARTICULO 391-Bis.- Se impondrán de treinta a cincuenta años de prisión y multa de mil a tres mil días de salario y, en su caso, destitución e inhabilitación del servidor público por un tiempo igual al de la pena de prisión impuesta, cuando en la ejecución del delito de secuestro a que se hace referencia en el artículo 391 de éste Código, concurra alguna de las circunstancias siguientes:
+ARTICULO 391 Bis.- Se impondrán de treinta a cincuenta años de prisión y multa de mil a tres mil días de salario y, en su caso, destitución e inhabilitación del servidor público por un tiempo igual al de la pena de prisión impuesta, cuando en la ejecución del delito de secuestro a que se hace referencia en el artículo 391 de éste Código, concurra alguna de las circunstancias siguientes:
 I.- Que el secuestrado sea menor de dieciocho o mayor de sesenta años o que tenga alguna discapacidad física o mental;
 II.- Que el secuestrador tenga o haya tenido vínculos de parentesco, amistad, gratitud, confianza o relación laboral con el secuestrado o persona relacionada con éste;
 III.- Que el secuestrador sea o haya sido servidor público o miembro de una corporación de seguridad privada;

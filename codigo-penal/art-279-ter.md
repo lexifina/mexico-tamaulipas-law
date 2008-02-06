@@ -3,4 +3,4 @@ ARTICULO 279 ter.- A quien divulgue la identidad, nombre, apellido de sus padres
 (ADICIONADO, P.O. 8 DE MARZO DE 2007)
 Sí el delito establecido en este artículo es cometido por un Servidor Público, la sanción se aumentará hasta dos terceras partes más y la destitución de su cargo o puesto público.
 (ADICIONADO, P.O. 8 DE MARZO DE 2007)
-Las Autoridades garantizarán que la información que brinden no contravenga el derecho que prevé este artículo..
+Las Autoridades garantizarán que la información que brinden no contravenga el derecho que prevé este artículo.
