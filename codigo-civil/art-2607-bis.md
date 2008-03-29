@@ -2,7 +2,7 @@
 CAPITULO II BIS
 TESTAMENTO PUBLICO SIMPLIFICADO
 (ADICIONADO, P.O. 2 DE SEPTIEMBRE DE 1998)
-ART. 2607 BIS.- Testamento Público Simplificado, es aquél que se otorga ante notario respecto de un inmueble destinado o que vaya a destinarse a vivienda familiar por el adquirente, en la misma escritura que consigne su adquisición o en la que se consigne la regularización de un inmueble que lleven a cabo las autoridades del Estado, de los Ayuntamientos , o cualquier Dependencia o Entidad de la Administración Pública Federal, o Estatal o Municipal, o en acto posterior, de conformidad con lo siguiente:
+ART. 2607 BIS.- Testamento Público Simplificado, es aquél que se otorga ante notario respecto de un inmueble destinado o que vaya a destinarse a vivienda familiar por el adquirente, en la misma escritura que consigne su adquisición o en la que se consigne la regularización de un inmueble que lleven a cabo las autoridades del Estado, de los Ayuntamientos, o cualquier Dependencia o Entidad de la Administración Pública Federal, o Estatal o Municipal, o en acto posterior, de conformidad con lo siguiente:
 (REFORMADA, P.O. 2 DE DICIEMBRE DE 2004)
 I.- Que el precio del inmueble o su valor de avalúo catastral al momento de su adquisición no exceda del monto previsto por el artículo 644 de este Código. En los casos de regularización de inmuebles que lleven a cabo las dependencias y entidades a que se refiere el párrafo anterior, no importará su monto;
 II.- Los notarios, redactarán en la Escritura las cláusulas necesarias para el otorgamiento del Testamento, las que se incluirán en un capítulo que se denominará "Cláusulas Testamentarias";
