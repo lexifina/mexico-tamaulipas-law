@@ -4,7 +4,7 @@ GOBIERNO DEL ESTADO
 PODER EJECUTIVO
 SECRETARIA GENERAL
 EUGENIO HERNANDEZ FLORES, Gobernador Constitucional del Estado Libre y Soberano de Tamaulipas, a sus habitantes hace saber:
-Que el Honorable Congreso del Estado, ha tenido ha bien expedir el siguiente Decreto:
+Que el Honorable Congreso del Estado, ha tenido ha (sic) bien expedir el siguiente Decreto:
 Al margen un sello que dice: "Estados Unidos Mexicanos.- Gobierno de Tamaulipas.- Poder Legislativo.
 LA QUINCUAGESIMA NOVENA LEGISLATURA DEL CONGRESO CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE TAMAULIPAS, EN USO DE LAS FACULTADES QUE LE CONFIEREN EL ARTICULO 58 FRACCIÓN I DE LA CONSTITUCION POLITICA DEL ESTADO; Y EL ARTICULO 119 DE LA LEY SOBRE LA ORGANIZACIÓN Y FUNCIONAMIENTO INTERNOS DEL CONGRESO DEL ESTADO DE TAMAULIPAS, TIENE A BIEN EXPEDIR EL SIGUIENTE:
 D E C R E T O No. LlX-94
