@@ -6,3 +6,4 @@ DIPUTADO SECRETARIO.- FERNANDO ALEJANDRO FERNANDEZ DE LEON.- Rúbrica.
 Por tanto, mando se imprima, publique, circule y se le dé el debido cumplimiento.
 Dado en la residencia del Poder Ejecutivo, en Ciudad Victoria, Capital del Estado de Tamaulipas, a los siete días del mes de diciembre del año dos mil siete.
 ATENTAMENTE.- SUFRAGIO EFECTIVO. NO REELECCION.- GOBERNADOR CONSTITUCIONAL DEL ESTADO.- EUGENIO HERNANDEZ FLORES.- Rúbrica.- SECRETARIO GENERAL DE GOBIERNO.- ANTONIO MARTlNEZ TORRES.- Rúbrica.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
