@@ -1,0 +1,4 @@
+P.O. 7 DE JULIO DE 2009.
+DECRETO No. LX-701, POR EL QUE SE REFORMAN Y ADICIONAN LOS ARTICULOS 10, 25, 29, 66, 68 BIS, 301, 379 Y 926 DEL CODIGO DE PROCEDIMIENTOS CIVILES DEL ESTADO DE TAMAULIPAS.
+ARTICULO PRIMERO.- El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+ARTICULO SEGUNDO.- En lo que respecta a la reforma del artículo 29, únicamente serán diligenciados de oficio todos aquellos autos ordenados por los órganos jurisdiccionales en aquellos distritos en los cuales opere una central de actuarios; en los restantes, las partes continuarán aportando los medios de conducción para la realización de las diligencias ordenadas por el órgano jurisdiccional, hasta en tanto no se instale una central de actuarios, o el propio tribunal esté en posibilidad presupuestal de proveer los medios de conducción.

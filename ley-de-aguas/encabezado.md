@@ -1,4 +1,4 @@
-LEY DE AGUAS DEL ESTADO DE TAMAULlPAS
+LEY DE AGUAS DEL ESTADO DE TAMAULIPAS
 Ley publicada en el Periódico Oficial del Estado de Tamaulipas, el miércoles 15 de febrero de 2006.
 GOBIERNO DEL ESTADO
 PODER EJECUTIVO
