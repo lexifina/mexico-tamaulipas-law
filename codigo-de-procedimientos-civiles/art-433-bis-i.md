@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 7 DE JULIO DE 2009)
+ARTICULO 433 Bis I.- Presentada la solicitud de investigación de la filiación, se resolverá sobre su admisión, ordenándose correr traslado, mediante notificación personal, a quien se le impute la misma a fin de que comparezca ante la autoridad dentro del término de tres días, para que manifieste su aceptación o negativa a dicha imputación. Para el caso de que se omita manifestación alguna por parte de la persona requerida, se entenderá como una negativa de la filiación que se le atribuye.
