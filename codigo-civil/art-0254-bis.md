@@ -6,7 +6,7 @@ III.- Que los solicitantes se identifiquen plenamente;
 IV.- Que sean mayores de edad, lo que acreditarán con las copias certificadas de las actas correspondientes;
 V.- Que no tengan hijos entre sí, o teniéndolos, sean mayores de edad, siempre que no sean incapaces;
 VI.- En caso de que hayan contraído matrimonio bajo el régimen de sociedad conyugal, que acrediten con copia certificada de la resolución judicial o del convenio notarial correspondiente, haber liquidado la misma;
-VII.- Que la mujer presente original de certificado medico en el que conste que no se encuentra en estado de gravidez.
+VII.- Que la mujer presente original de certificado médico en el que conste que no se encuentra en estado de gravidez.
 El Oficial del Registro Civil, después de haber verificado que los solicitantes cumplieron con los requisitos antes mencionados, levantará un acta en la que hará constar la solicitud de divorcio administrativo y citará a los cónyuges para que se presenten a ratificar la solicitud dentro de un plazo no menor de diez ni mayor de quince días.
 Si los cónyuges ratifican la solicitud, el Oficial del Registro Civil los declarará divorciados, levantando el acta correspondiente ante la presencia de dos testigos y hará la anotación respectiva para la cancelación del matrimonio.
 Los cónyuges que sean declarados divorciados no podrán contraer matrimonio, hasta que transcurra un año a partir de la declaración de divorcio administrativo.
