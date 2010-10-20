@@ -1,0 +1,1 @@
+ARTICULO CUARTO.- La Comisión Interinstitucional, una vez instalada, contará con un plazo de tres meses a partir de la entrada en vigor de la presente ley para elaborar el Programa Estatal para Prevenir, Combatir y Sancionar la Trata de Personas y Proteger a sus Víctimas.
