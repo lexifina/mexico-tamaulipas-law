@@ -1,0 +1,3 @@
+P.O. 2 DE NOVIEMBRE DE 2010.
+DECRETO NUMERO LX-1100, POR EL QUE SE REFORMA EL SEGUNDO PARRAFO DEL ARTICULO 138 DE LA CONSTITUCION POLITICA DEL ESTADO DE TAMAULIPAS.
+ARTICULO UNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
