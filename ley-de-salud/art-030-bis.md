@@ -9,5 +9,9 @@ VI.- Conocer el nombre y la calificación profesional de quien le administre un 
 VII.- Recibir información sobre eventuales afecciones que se conozca o se sospeche que padezca el producto del embarazo o el recién nacido;
 VIII.- Conocer o consultar su historia clínica y solicitar copia de la misma;
 IX.- Elegir una posición para el trabajo de parto y el parto, que le resulten más convenientes para ella y el producto del embarazo;
-X.- Recibir atención sensible con su sistema de valores y de creencias; y
-XI.- Ser informada sobre los procedimientos de orientación y quejas con relación a la prestación a (sic) los servicios de salud.
+(REFORMADA, P.O. 2 DE NOVIEMBRE DE 2010)
+X.- Recibir atención sensible con su sistema de valores y de creencias;
+(REFORMADA, P.O. 2 DE NOVIEMBRE DE 2010)
+XI.- Ser informada sobre los procedimientos de orientación y quejas con relación a la prestación a los servicios de salud; y
+(ADICIONADA, P.O. 2 DE NOVIEMBRE DE 2010)
+XII.- Ser informada y acceder al examen de VIH a fin de prevenir la salud de los infantes desde su gestación, siendo el resultado de dicho examen como confidencial.
