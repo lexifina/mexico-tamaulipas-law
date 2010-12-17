@@ -1,0 +1,4 @@
+P.O. 16 DE DICIEMBRE DE 2010.
+ARTICULO PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+ARTICULO SEGUNDO.- Se derogan todas las disposiciones que se opongan a lo dispuesto en el presente Decreto.
+ARTICULO TERCERO.- Los Ayuntamientos en los que se instalen Centros de Verificación de contaminantes por fuentes móviles o en los que funcionen las unidades móviles de verificación, deberán coordinarse con la Agencia Ambiental para el Desarrollo Sustentable, a efecto de celebrar los actos jurídicos que se requieran para la exacta observancia de las disposiciones relativas a la verificación vehicular de contaminantes. Asimismo, deberán adecuar sus propias determinaciones legales que incidan en la materia para ejercer las acciones de autoridad que privilegien el cumplimiento de las normas protectoras del medio ambiente, incluidas aquellas que versen sobre la recaudación de derechos por ese concepto.
