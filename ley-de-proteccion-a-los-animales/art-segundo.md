@@ -1,0 +1,1 @@
+ARTICULO SEGUNDO.- El Ejecutivo del Estado expedirá los reglamentos necesarios para el cumplimiento de esta ley, en un término no mayor a 180 días contados a partir de la entrada en vigor de la presente ley.
