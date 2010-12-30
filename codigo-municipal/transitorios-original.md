@@ -2,7 +2,7 @@ TRANSITORIOS:
 ARTICULO PRIMERO.- El presente Decreto entrará en vigor el día de su publicación en el Periódico Oficial del Estado.
 ARTICULO SEGUNDO.- Se abroga la Ley Orgánica Municipal expedida por el XXXVII Congreso Constitucional del Estado, con fecha 10 de octubre de 1941.
 ARTICULO TERCERO.- Se abroga el Decreto No. 407, publicado en el Periódico Oficial del Estado No. 104, del 28 de diciembre de 1977.
-ARTICULO CUARTO.- Se derogan los Artículos 35, fracción III, 38, 39 y 40, de la Ley de laPolicía Preventiva de los Municipios del Estado, así como todas las disposiciones que se opongan a este Código.
+ARTICULO CUARTO.- Se derogan los Artículos 35, fracción III, 38, 39 y 40, de la Ley de la Policía Preventiva de los Municipios del Estado, así como todas las disposiciones que se opongan a este Código.
 (F. DE E., P.O. 2 DE JUNIO DE 1984)
 ARTICULO QUINTO.- Los municipios actuales seguirán subsistiendo aunque no reúnan los requisitos señalados en el Artículo 11 de este Código; asimismo, su territorio es el que se encuentra comprendido dentro de los límites reconocidos y seguirán conservando las cabeceras con la denominación política que actualmente ostentan.
 ARTICULO SEXTO.- El aspecto sustantivo y de procedimiento a que se refiere la Ley de Ingresos de los Municipios para el ejercicio fiscal de 1984, se regirán por lo dispuesto en el Título Segundo del presente Código.
