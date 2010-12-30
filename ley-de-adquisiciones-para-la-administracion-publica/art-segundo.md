@@ -1,0 +1,1 @@
+ARTICULO SEGUNDO.- Se abroga la Ley de Adquisiciones para la Administración Pública del Estado de Tamaulipas expedida mediante Decreto número 26 de la Quincuagésima Cuarta Legislatura del H. Congreso del Estado, de fecha 19 de abril de 1990, publicado en el Periódico Oficial del Estado el 15 de agosto de ese mismo año.

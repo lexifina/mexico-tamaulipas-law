@@ -1,0 +1,1 @@
+ARTICULO TERCERO.- Los procedimientos iniciados bajo la vigencia de la Ley de Adquisiciones para la Administración Pública del Estado de Tamaulipas que se abroga, seguirán aplicándose con la misma Ley hasta la formalización de los contratos respectivos.
