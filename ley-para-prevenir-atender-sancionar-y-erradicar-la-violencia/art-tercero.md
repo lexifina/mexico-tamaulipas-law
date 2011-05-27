@@ -3,3 +3,4 @@ SALÓN DE SESIONES DEL H. CONGRESO DEL ESTADO.- Cd. Victoria, Tam., a 29 de juni
 Por tanto, mando se imprima, publique, circule y se le dé el debido cumplimiento.
 Dado en la residencia del Poder Ejecutivo, en Ciudad Victoria, Capital del Estado de Tamaulipas, a los cuatro días del mes de julio del año dos mil siete.
 ATENTAMENTE.- SUFRAGIO EFECTIVO. NO REELECCIÓN.- GOBERNADOR CONSTITUCIONAL DEL ESTADO.- EUGENIO HERNÁNDEZ FLORES.- Rúbrica.- SECRETARIO GENERAL DE GOBIERNO.- ANTONIO MARTÍNEZ TORRES.- Rúbrica.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS DEL PRESENTE ORDENAMIENTO.

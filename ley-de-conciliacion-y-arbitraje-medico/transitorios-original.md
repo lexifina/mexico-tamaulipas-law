@@ -1,5 +1,6 @@
 TRANSITORIOS
-ARTICULO PRIMERO. La presente ley entrará en vigor a los noventa días hábiles siguientes a su publicación en el Periódico Oficial del Estado.
+(REFORMADO, P.O. 26 DE MAYO DE 2011)
+ARTICULO PRIMERO. La presente ley entrará en vigor ciento ochenta días hábiles siguientes al de su publicación en el Periódico Oficial del Estado.
 ARTICULO SEGUNDO. La Comisión deberá integrarse dentro de los sesenta días hábiles siguientes a la fecha en que entre en vigor la presente ley; de cumplir con lo dispuesto para el efecto, podrán ser ratificados en la Comisión, los miembros de la Comisión Estatal de Arbitraje Médico.
 ARTICULO TERCERO. De acuerdo con la disponibilidad presupuestal, el Ejecutivo del Estado podrá realizar las previsiones y transferencias de los recursos necesarios.
 ARTICULO CUARTO. La Comisión no conocerá de las quejas o inconformidades presentadas a la Comisión Estatal de Arbitraje Médico que ya hubieren sido resueltas por la misma a la entrada en vigor de la presente ley.
@@ -13,3 +14,4 @@ SALON DE SESIONES DEL H. CONGRESO DEL ESTADO.- Cd. Victoria, Tam., a 15 de dicie
 Por tanto, mando se imprima, publique, circule y se le dé el debido cumplimiento.
 Dado en la residencia del Poder Ejecutivo, en Ciudad Victoria, Capital del Estado de Tamaulipas, a los diecisiete días del mes de diciembre del año dos mil diez.
 ATENTAMENTE.- SUFRAGIO EFECTIVO. NO REELECCION.- GOBERNADOR CONSTITUCIONAL DEL ESTADO.- EUGENIO HERNANDEZ FLORES.- Rubrica.- SECRETARIO GENERAL DE GOBIERNO.- HUGO ANDRES ARAUJO DE LA TORRE.- Rubrica.
+N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.
