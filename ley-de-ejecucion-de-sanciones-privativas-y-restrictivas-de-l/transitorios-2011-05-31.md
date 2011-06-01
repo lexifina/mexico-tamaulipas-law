@@ -1,0 +1,4 @@
+P.O. 31 DE MAYO DE 2011.
+ARTÍCULO PRIMERO. El presente Decreto entrara en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+ARTÍCULO SEGUNDO. Los asuntos iniciados con las disposiciones que mediante el presente Decreto, fueron reformadas o adicionadas, deberán concluirse con el procedimiento mediante el cual fueron iniciados, salvo las cuestiones que, a petición de parte, antes resolvía el juez de la causa, que ahora corresponderá conocer al Juez de Ejecución de Sanciones, por lo cual, sólo en estos casos, la Secretaria de Seguridad Pública, a petición de los Jueces de Ejecución de Sanciones, remitirá los expedientes de los internos, para que aquellos resuelvan lo conducente.
+ARTÍCULO TERCERO. El Reglamento para los Centros de Readaptación Social del Estado de Tamaulipas, deberá quedar reformado para adecuarlo al presente Decreto, en un plazo no mayor a 90 días naturales, a partir de la entrada en vigor del mismo.
