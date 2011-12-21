@@ -1,4 +1,4 @@
-LEY DE INFRAESTRUCTURA FISICA EDUCATIVA PARA EL ESTADO DE TAMAULIPAS
+LEY DE INFRAESTRUCTURA FÍSICA EDUCATIVA PARA EL ESTADO DE TAMAULIPAS
 Ley publicada en el Anexo del Periódico Oficial del Estado de Tamaulipas, el martes 7 de julio de 2009.
 EUGENIO HERNANDEZ FLORES, Gobernador Constitucional del Estado Libre y Soberano de Tamaulipas, a sus habitantes hace saber:
 Que el Honorable Congreso del Estado, ha tenido a bien expedir el siguiente Decreto:
