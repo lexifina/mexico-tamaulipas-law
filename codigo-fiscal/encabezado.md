@@ -1,4 +1,4 @@
-CODIGO FISCAL DEL ESTADO DE TAMAULIPAS
+CÓDIGO FISCAL DEL ESTADO DE TAMAULIPAS
 Ley publicada en el Periódico Oficial del Gobierno del Estado de Tamaulipas, el sábado 28 de diciembre de 1991.
 Al margen un sello que dice: "Estados Unidos Mexicanos.- Gobierno de Tamaulipas.- Poder Ejecutivo.- Secretaría General".
 AMERICO VILLARREAL GUERRA, Gobernador Constitucional del Estado Libre y Soberano de Tamaulipas, a sus habitantes hace saber:
