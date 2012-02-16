@@ -10,4 +10,4 @@ IV.- La tramitación y resolución de las apelaciones pendientes, al entrar en v
 V.- la caducidad de la instancia por inactividad de las partes se operará en los asuntos que actualmente se tramitan conforme a lo dispuesto en el artículo 569 del Código anterior.
 Por tanto mando se imprima, publique, circule y se le dé el debido cumplimiento.
 Dado en el Palacio del Poder Ejecutivo, en Ciudad Victoria, Capital del Estado, a los dos días del mes de febrero de mil novecientos sesenta y uno.
-N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE CODIGO.
+N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE CÓDIGO.

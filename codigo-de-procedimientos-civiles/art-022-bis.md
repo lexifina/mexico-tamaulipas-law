@@ -1,4 +1,4 @@
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VEASE ARTICULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO, P.O. 8 DE NOVIEMBRE DE 2011)
 ARTICULO 22 Bis.- Con excepción de la demanda inicial y la contestación, las partes podrán presentar promociones a través del Tribunal Electrónico, por si o por persona autorizada, a través de la página web oficial del Poder Judicial del Estado, lo que permitirá enviar los documentos respectivos de manera electrónica.
 La opción de presentar promociones electrónicas, no obliga a las partes a realizar las subsecuentes de la misma forma, pudiendo en todo momento optar por presentarlas en forma escrita. En cualquier caso, los requisitos de forma exigidos por este Código y demás disposiciones, deberán ser igualmente satisfechos.
