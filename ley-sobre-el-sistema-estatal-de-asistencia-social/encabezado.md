@@ -6,5 +6,5 @@ Que el Honorable Congreso del Estado, se ha servido a bien expedir el siguiente
 DECRETO No. 391
 Por medio del cual se expide la
 LEY SOBRE EL SISTEMA ESTATAL DE ASISTENCIA SOCIAL.
-LA QUINCUAGESIMA SEGUNDA LEGISLATURA DEL CONGRESO CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE TAMAULIPAS, en uso de las facultades que le concede el Artículo 58, fracciones I y XXXVII de la Constitución Política local.
+LA QUINCUAGÉSIMA SEGUNDA LEGISLATURA DEL CONGRESO CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE TAMAULIPAS, en uso de las facultades que le concede el Artículo 58, fracciones I y XXXVII de la Constitución Política local.
 LEY SOBRE EL SISTEMA ESTATAL DE ASISTENCIA SOCIAL

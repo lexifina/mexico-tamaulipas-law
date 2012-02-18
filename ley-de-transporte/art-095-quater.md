@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 17 DE FEBRERO DE 2012)
+ARTÍCULO 95 QUATER.- Cuando en las acciones o los operativos de inspección y vigilancia, se detecte que una persona o unidad se encuentre en el supuesto de incumplir con la normatividad aplicable a la luz de cualquiera de las verificaciones previstas en el artículo anterior, se aplicarán las sanciones establecidas en la presente ley, sin perjuicio de las causas de remisión de las unidades a los depósitos vehiculares, la revocación de la concesión o permiso, y la responsabilidad civil o penal que resulten de los mismos.
