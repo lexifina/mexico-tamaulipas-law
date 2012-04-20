@@ -16,7 +16,8 @@ l) Las demás que se le encomienden a través del Comité del Instituto de Inves
 2. Para el ejercicio de las atribuciones establecidas en el párrafo anterior, el Instituto contará con la estructura administrativa que se prevea en el Reglamento, la cual podrá ampliarse conforme a las necesidades propias de su funcionamiento. El personal del instituto deberá contar con un perfil profesional relacionado con los ámbitos académico y de la investigación.
 3. El Coordinador del Instituto será nombrado por el Pleno, con el voto de la mayoría de los Diputados presentes, a propuesta de la Junta de Coordinación Política, por un término de tres años, pudiendo ser ratificado, y sólo podrá ser removido por el mismo Pleno.
 4. Para ser nombrado Coordinador del Instituto de Investigaciones Parlamentarias se requiere:
-a) Ser mexicano por nacimiento;
+(REFORMADO, P. O. 19 DE ABRIL DE 2012)
+a) Ser mexicano;
 b) Estar en pleno de (sic) goce de sus derechos civiles y políticos;
 c) No haber sido condenado por delito intencional que ameritara pena privativa de la libertad;
 d) Contar con título profesional preferentemente de Licenciado en Derecho o su equivalente legalmente expedido;
