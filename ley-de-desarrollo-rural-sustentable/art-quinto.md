@@ -1,0 +1,1 @@
+ARTÍCULO QUINTO. El titular del Poder Ejecutivo del Estado expedirá dentro de los 180 días posteriores a la publicación de la presente Ley, el reglamento que previene este cuerpo normativo y las demás disposiciones administrativas necesarias.
