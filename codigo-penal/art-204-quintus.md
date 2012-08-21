@@ -1,4 +1,4 @@
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VEASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL CODIGO.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO, P.O. 16 DE DICIEMBRE DE 2010)
 ARTICULO 204 QUINTUS.- Comete el delito de narcomenudeo en su modalidad de posesión, quien sin la autorización correspondiente, posea alguno de los narcóticos señalados en la tabla en cantidad inferior a la que resulte de multiplicar por mil las previstas en dicha tabla, cuando por las circunstancias del hecho, tal posesión no pueda considerarse destinada a comerciarlos o suministrarlos, aún gratuitamente.
 Por la comisión de este delito se impondrá pena de diez meses a tres años de prisión y sanción pecuniaria de hasta ochenta días de salario mínimo.

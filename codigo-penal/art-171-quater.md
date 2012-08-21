@@ -1,7 +1,7 @@
-(ADICIONADO CON EL ARTICULO QUE LO INTEGRA, P.O. 3 DE MAYO DE 2011)
+(ADICIONADO CON EL ARTÍCULO QUE LO INTEGRA, P.O. 3 DE MAYO DE 2011)
 CAPITULO V
 ATENTADOS A LA SEGURIDAD DE LA COMUNIDAD
-(REFORMADO PRIMER PARRAFO, P.O. 31 DE AGOSTO DE 2011)
+(REFORMADO PRIMER PÁRRAFO, P.O. 31 DE AGOSTO DE 2011)
 ARTICULO 171 Quáter.- Comete el delito de atentado contra la seguridad de la comunidad y se le aplicará una sanción de siete a quince años de prisión y multa de doscientos a cuatrocientos días de salario, a quien sin causa justificada incurra en dos o más supuestos contenidos en cualquiera de las siguientes fracciones:
 (ADICIONADA, P.O. 3 DE MAYO DE 2011)
 I.- Posea o porte en su persona, en el vehículo en el que se encuentre o se le relacione con éste, o en el lugar donde se le capture, uno o varios instrumentos que puedan ser utilizados para agredir, y que no justifique que sea utilizado en actividades laborales o recreativas;

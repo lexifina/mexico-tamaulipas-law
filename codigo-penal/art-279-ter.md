@@ -1,4 +1,4 @@
-(REFORMADO PRIMER PARRAFO, P.O. 24 DE JUNIO DE 2008)
+(REFORMADO PRIMER PÁRRAFO, P.O. 24 DE JUNIO DE 2008)
 ARTICULO 279 Ter.- A quien divulgue la identidad, nombre, apellido de sus padres, que permita la identificación pública de mujeres, niños o adolescentes, que hayan sido objeto de violencia física, psicológica, moral o sexual, derivados de delitos de tipo sexual o violencia familiar, se le aplicará de dos a cinco años de prisión y multa de cien a quinientos días de salario mínimo vigente en la capital del Estado.
 (ADICIONADO, P.O. 8 DE MARZO DE 2007)
 Sí el delito establecido en este artículo es cometido por un Servidor Público, la sanción se aumentará hasta dos terceras partes más y la destitución de su cargo o puesto público.

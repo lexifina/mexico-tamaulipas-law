@@ -1,4 +1,4 @@
-(REFORMADO PRIMER PARRAFO, P.O. 12 DE FEBRERO DE 2008)
+(REFORMADO PRIMER PÁRRAFO, P.O. 12 DE FEBRERO DE 2008)
 ARTICULO 194 BIS.- Comete el delito de pornografía de menores de edad e incapaces:
 (REFORMADA, P.O. 12 DE FEBRERO DE 2008)
 I.- El que obligue o induzca a uno o más menores de dieciocho años o incapaces a realizar actos de exhibicionismo corporal, lascivos, sexuales o pornográficos con la finalidad de grabarlos, videograbarlos, filmarlos, fotografiarlos o exhibirlos mediante anuncios impresos, transmisión de archivos de datos en red pública o privada de telecomunicación, sistemas de cómputo, medios electrónicos o de cualquier otra naturaleza;

@@ -1,4 +1,4 @@
-(REFORMADO PRIMER PARRAFO, P.O. 31 DE AGOSTO DE 2011)
+(REFORMADO PRIMER PÁRRAFO, P.O. 31 DE AGOSTO DE 2011)
 ARTICULO 188 Bis.- Se impondrá sanción de siete a quince años de prisión y multa de doscientos a cuatrocientos días salario, a quien aceche, vigile, alerte, informe o realice espionaje, sobre las actividades, operativos, ubicación o, en general, respecto de las labores que realicen los elementos de las fuerzas armadas, o las instituciones de seguridad pública o de persecución y sanción del delito.
 (ADICIONADO, P.O. 3 DE MAYO DE 2011)
 Las penas a que se refiere el párrafo anterior se aumentarán en una mitad más cuando:
