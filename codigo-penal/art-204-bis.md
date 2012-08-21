@@ -1,6 +1,6 @@
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE CAPITULO, VEASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL CODIGO.
 (ADICIONADO CON LOS ARTICULOS QUE LO INTEGRAN, P.O. 16 DE DICIEMBRE DE 2010)
-CAPITULO Ill
+CAPITULO III
 DEL NARCOMENUDEO
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VEASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL CODIGO.
 (ADICIONADO, P.O. 16 DE DICIEMBRE DE 2010)
@@ -12,4 +12,4 @@ IV. Consumidor: Toda persona que consume o utilice estupefacientes o psicotrópi
 V. Narcóticos: Los estupefacientes, psicotrópicos y demás sustancias o vegetales que determinen la Ley General de Salud, los convenios y tratados internacionales de observancia obligatoria en México y los que señalen las demás disposiciones legales aplicables en la materia;
 VI. Posesión: La tenencia material de narcóticos o cuando éstos están dentro del radio de acción y disponibilidad de la persona;
 VII. Suministro: La transmisión material de forma directa o indirecta, por cualquier concepto, de la tenencia de narcóticos, y
-Vlll. Tabla: La relación de narcóticos y la orientación de dosis máximas de consumo personal e inmediato prevista en el artículo 479 de la Ley General de Salud.
+VIII. Tabla: La relación de narcóticos y la orientación de dosis máximas de consumo personal e inmediato prevista en el artículo 479 de la Ley General de Salud.
