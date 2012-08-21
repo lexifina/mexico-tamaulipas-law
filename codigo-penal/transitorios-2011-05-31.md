@@ -1,0 +1,4 @@
+P.O. 31 DE MAYO DE 2011.
+DECRETO NUMERO LXI-43, POR EL QUE SE REFORMAN LOS ARTICULOS 12, 46 PRIMER PARRAFO, 107, 108 PARRAFO PRIMERO, LA FRACCION III INCISO A), LA FRACCION IV INCISO C) PARRAFO SEGUNDO, LA FRACCION V INCISO C) PARRAFOS SEGUNDO Y TERCERO, LA FRACCION VI INCISOS B) Y C) SEGUNDO PARRAFO, VII SEGUNDO PARRAFO Y VIII PARRAFOS PRIMERO, TERCERO Y QUINTO; 110 PARRAFO PRIMERO, 112 FRACCION VII Y 113 PARRAFO PRIMERO, DEL CODIGO PENAL PARA EL ESTADO DE TAMAULIPAS.
+ARTÍCULO PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+ARTÍCULO SEGUNDO. Los asuntos iniciados con las disposiciones que mediante el presente Decreto, se reforman o adicionan, deberán concluirse con el procedimiento mediante el cual se iniciaron, salvo las cuestiones que, a petición de parte, antes resolvía el juez de la causa, que ahora corresponderá conocer al Juez de Ejecución de Sanciones.

@@ -1,5 +1,5 @@
 (ADICIONADO, P.O. 5 DE JUNIO DE 1999)
-ARTICULO 46 Bis.- Las penas sustitutivas de prisión tienen por objeto la aplicación de medidas temporales privativas y restrictivas de la libertad, laborales, educativas y curativas autorizadas por la Ley, conducentes a la readaptación social del condenado, bajo la orientación y cuidado de la autoridad ejecutora, y son las siguientes:
+ARTICULO 46 BIS.- Las penas sustitutivas de prisión tienen por objeto la aplicación de medidas temporales privativas y restrictivas de la libertad, laborales, educativas y curativas autorizadas por la Ley, conducentes a la readaptación social del condenado, bajo la orientación y cuidado de la autoridad ejecutora, y son las siguientes:
 I.- La prisión intermitente, que consiste en la alternación de períodos de libertad y privación de la misma, según los casos, en las formas siguientes:
 a).- Excarcelación durante la semana y reclusión los días sábado y domingo de la misma;
 b).- Salida los días sábado y domingo, con reclusión durante el resto de la semana;
