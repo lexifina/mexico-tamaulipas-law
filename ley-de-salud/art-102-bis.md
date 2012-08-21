@@ -1,0 +1,7 @@
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VEASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTA LEY.
+(ADICIONADO, P.O. 16 DE DICIEMBRE DE 2010)
+ARTICULO 102 bis.- El Consejo Estatal Contra las Adicciones, es el área especializada para el tratamiento, atención y rehabilitación, con base en sistemas modernos de tratamiento y rehabilitación, fundamentados en el respeto a la integridad y a la libre decisión del farmacodependiente.
+Como área especializada y en base a estudios rigurosos de impacto contra las adicciones deberá:
+I.- Crear un padrón de instituciones y organismos públicos y privados que realicen actividades de prevención, tratamiento, atención y reinserción social en materia de farmacodependencia que contenga las características de atención, condiciones y requisitos para acceder a los servicios que ofrecen, y
+II.- Celebrar convenios de colaboración con instituciones nacionales e internacionales de los sectores social y privado, y con personas físicas que se dediquen a la prevención, tratamiento, atención y reinserción social en materia de farmacodependencia, con el fin de que quienes requieran de asistencia, puedan, conforme a sus necesidades, características y posibilidades económicas, acceder a los servicios que todas éstas instituciones o personas físicas ofrecen.
+El Consejo Estatal Contra las Adicciones establecerá centros de prevención, tratamiento y rehabilitación en los diversos municipios del Estado.
