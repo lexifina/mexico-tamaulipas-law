@@ -1,0 +1,3 @@
+P.O. 31 DE MAYO DE 2011.
+DECRETO NUMERO LXI-45, POR EL QUE SE ADICIONAN LOS PARRAFOS TERCERO Y CUARTO AL ARTICULO 362 DEL CODIGO PENAL PARA EL ESTADO DE TAMAULIPAS.
+ARTÍCULO ÚNICO: El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
