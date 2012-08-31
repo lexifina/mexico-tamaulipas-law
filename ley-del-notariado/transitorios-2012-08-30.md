@@ -1,0 +1,8 @@
+P.O. 30 DE AGOSTO DE 2012.
+ARTÍCULO PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+ARTÍCULO SEGUNDO. Las Secretarías General de Gobierno, de Finanzas, de Administración y del Trabajo y Asuntos Jurídicos, así como la Contraloría Gubernamental, coordinarán las acciones necesarias para el cumplimiento del presente Decreto, gozando al efecto de las atribuciones necesarias para su estricta aplicación.
+ARTÍCULO TERCERO. Los recursos financieros y materiales, así como los bienes inmuebles adscritos al servicio del Instituto de Mediación del Estado de Tamaulipas, que con motivo de la expedición del presente Decreto se extingue, se transferirán a la Secretaría del Trabajo y Asuntos Jurídicos.
+ARTÍCULO CUARTO. El personal de nivel jerárquico menor a Jefe de Departamento asignado al Instituto de Mediación del Estado de Tamaulipas, será asignado a la Secretaría del Trabajo y Asuntos Jurídicos, conforme a la naturaleza de las funciones que venían realizando, según lo acuerde el titular de esta dependencia con la intervención de la Secretaría de Administración y de la Contraloría Gubernamental.
+Las acciones relativas al cambio de adscripción o reasignación del personal señalado en el párrafo anterior, se ejecutarán sin afectar sus derechos y prestaciones derivadas de la relación de trabajo que tuvieran anteriormente.
+ARTÍCULO QUINTO. El personal de nivel jerárquico de Jefe de Departamento y superiores, será dado de baja a partir de la entrada en vigor del presente Decreto, respetando sus derechos laborales y deberán ser indemnizados conforme a la ley de la materia.
+ARTÍCULO SEXTO. Se derogan todas aquellas disposiciones que se opongan el presente Decreto.
