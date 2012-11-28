@@ -1,5 +1,5 @@
 (ADICIONADO, P.O. 12 DE FEBRERO DE 2008)
-ARTICULO 30 Bis.- Durante el embarazo, la mujer goza de los siguientes derechos:
+ARTICULO 30 BIS.- Durante el embarazo, la mujer goza de los siguientes derechos:
 I.- Recibir información sobre los métodos de parto y las diferentes instituciones del sistema estatal de salud con capacidad profesional para atenderlos;
 II.- Recibir información sobre los beneficios y riesgos de los procedimientos, fármacos y pruebas que se utilicen durante el embarazo, el parto y el puerperio;
 III.- Rechazar las prácticas y procedimientos que no se encuentren respaldados por evidencias científicas;

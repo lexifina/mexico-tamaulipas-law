@@ -1,0 +1,3 @@
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+(ADICIONADO, P.O. 30 DE AGOSTO DE 2012)
+ARTICULO 187 QUATER.- No existirá impedimento alguno para que a solicitud y con la autorización de las siguientes personas: el o la cónyuge, el concubinario o la concubina, los descendientes, los ascendientes, los hermanos, el adoptado o el adoptante; conforme al orden expresado; se prescinda de los medios artificiales cuando se presente la muerte encefálica comprobada y se manifiesten los demás signos de muerte a que se refiere el artículo 187 Bis.
