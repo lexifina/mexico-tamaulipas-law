@@ -1,4 +1,4 @@
-(REFORMADO PRIMER PARRAFO, P.O. 18 DE DICIEMBRE DE 2002)
+(REFORMADO PRIMER PÁRRAFO, P.O. 18 DE DICIEMBRE DE 2002)
 ARTICULO 144-A.- La Secretaría de Finanzas podrá cancelar créditos fiscales, por incosteabilidad en el cobro o por insolvencia del deudor o de los responsables solidarios.
 (ADICIONADO, P.O. 26 DE DICIEMBRE DE 1998)
 Se consideran créditos de cobro incosteable, aquéllos cuyo importe sea inferior o igual a 15 días de salario mínimo, así como aquéllos cuyo costo de recuperación sea igual o mayor a su importe.
