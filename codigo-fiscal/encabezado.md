@@ -1,5 +1,5 @@
-N. DE E. PARA CONSULTAR LA VERSIÓN CORREGIDA DE ESTE ORDENAMIENTO, DE CONFORMIDAD CON LA FE DE ERRATAS PUBLICADA EL 17 DE ENERO DE 2013 EN EL P.O. DEL ESTADO TAMAULIPAS, SE RECOMIENDA ACUDIR AL TEXTO QUE SE VISUALIZA DENTRO DE LA CRONOLOGÍA CORRESPONDIENTE A DICHA FECHA, EN EL ÍNDICE RESPECTIVO DE SU HISTORIA LEGISLATIVA.
 CÓDIGO FISCAL DEL ESTADO DE TAMAULIPAS
+N. DE E. CONTIENE LA FE DE ERRATAS PUBLICADA EN EL P.O. DE 17 DE ENERO DE 2013.
 Ley publicada en el Periódico Oficial del Gobierno del Estado de Tamaulipas, el sábado 28 de diciembre de 1991.
 Al margen un sello que dice: "Estados Unidos Mexicanos.- Gobierno de Tamaulipas.- Poder Ejecutivo.- Secretaría General".
 AMERICO VILLARREAL GUERRA, Gobernador Constitucional del Estado Libre y Soberano de Tamaulipas, a sus habitantes hace saber:
