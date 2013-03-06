@@ -1,0 +1,3 @@
+P.O. 5 DE MARZO DE 2013.
+ARTÍCULO PRIMERO. La reforma efectuada al artículo 60 de la Constitución Política del Estado de Tamaulipas, establecida en el artículo primero del presente Decreto, surtirá efectos a partir del día siguiente al de su publicación en el Periódico Oficial del Estado.
+ARTÍCULO SEGUNDO. La reforma concerniente al artículo 53 párrafo 1 de la Ley sobre la Organización y Funcionamiento Internos del Congreso del Estado de Tamaulipas, establecida en el artículo segundo del presente Decreto, entrará en vigor una vez que surta efectos la reforma efectuada al artículo 60 de la Constitución Política del Estado de Tamaulipas, contenida en este Decreto, debiéndose publicar en el Periódico Oficial del Estado.
