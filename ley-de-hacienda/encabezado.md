@@ -1,5 +1,4 @@
 LEY DE HACIENDA PARA EL ESTADO DE TAMAULIPAS
-N. DE E. CONTIENE LA FE DE ERRATAS PUBLICADA EN EL PERIÓDICO OFICIAL DEL 17 DE ENERO DE 2013.
 Ley publicada en el Anexo al Extraordinario No. 5 del Periódico Oficial del Estado de Tamaulipas, el lunes 31 de diciembre de 2007.
 EUGENIO HERNANDEZ FLORES, Gobernador Constitucional del Estado Libre y Soberano de Tamaulipas, a sus habitantes hace saber: Que el Honorable Congreso del Estado, ha tenido a bien expedir el siguiente Decreto:
 Al margen un sello que dice:- "Estados Unidos Mexicanos.- Gobierno de Tamaulipas.- Poder Legislativo.

@@ -11,4 +11,4 @@ SALON DE SESIONES DEL H. CONGRESO DEL ESTADO.
 Cd. Victoria, Tam., a 29 de febrero de 1984.- Diputado Presidente, LIC. TITO RESENDEZ TREVIÑO.- Diputado Secretario, LIC. MERCEDES DEL C. GUILLEN V.-Diputado Secretario JOSE GUADALUPE PUGA GARCIA.- Rúbricas.
 Por tanto, mando se imprima, publique, circule y se le dé el debido cumplimiento.
 Dado en el Palacio del Poder Ejecutivo; en Ciudad Victoria, capital del Estado de Tamaulipas, a primero de marzo de mil novecientos ochenta y cuatro.- El Gobernador Constitucional del Estado, DR. EMILIO MARTINEZ MANAUTOU.- El Subsecretario General de Gobierno Encargado del Despacho por Ministerio de Ley, LIC. JESUS LAVIN SANTOS DEL PRADO.- Rúbricas.
-N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
+N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.

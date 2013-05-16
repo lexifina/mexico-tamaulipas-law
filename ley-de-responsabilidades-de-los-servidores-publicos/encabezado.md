@@ -1,4 +1,4 @@
-LEY DE RESPONSABILIDADES DE LOS SERVIDORES PUBLICOS DEL ESTADO DE TAMAULIPAS
+LEY DE RESPONSABILIDADES DE LOS SERVIDORES PÚBLICOS DEL ESTADO DE TAMAULIPAS
 Ley publicada en el Periódico Oficial del Gobierno del Estado de Tamaulipas, el sábado 3 de marzo de 1984.
 Al margen un sello que dice: "Estado Unidos Mexicanos.- Gobierno de Tamaulipas.- Poder Ejecutivo.- Secretaría General.
 El CIUDADANO DOCTOR EMILIO MARTINEZ MANAUTOU, Gobernador Constitucional del Estado Libre y Soberano de Tamaulipas, a sus habitantes hace saber:
