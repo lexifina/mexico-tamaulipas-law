@@ -3,3 +3,5 @@ ARTICULO 66 BIS.
 (REFORMADO, P.O. 16 DE MARZO DE 2011)
 1. La Unidad de Información Pública del Congreso del Estado, realizará sus funciones con base en la Ley de Transparencia y Acceso a la Información Pública del Estado de Tamaulipas, y ejercerá sus atribuciones legales orientada por las bases regulatorias que establezca el Reglamento que al efecto se expida en esta materia.
 2. La Unidad de Información Pública dependerá del Presidente de la Mesa Directiva y, en los recesos, del Presidente de la Diputación Permanente, debiendo desarrollar sus funciones bajo el acuerdo y supervisión de dichos titulares, en los términos que establezcan las disposiciones legales y reglamentarias respectivas.
+(ADICIONADO, P.O. 15 DE MAYO DE 2013)
+3. Los costos de reproducción y envió de información solicitada a la Unidad de Información Pública serán cubiertos por el solicitante, en términos de lo previsto en la Ley de Hacienda y mediante los mecanismos administrativos que al efecto se establezcan.
