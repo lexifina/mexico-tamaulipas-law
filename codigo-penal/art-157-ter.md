@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 7 DE JUNIO DE 2013)
+ARTICULO 157 TER.- Se impondrá pena de prisión de siete a quince años y multa de doscientos a cuatrocientos días de salario, sin perjuicio de las penas que correspondan por los delitos que resulten, al que porte, traslade o instale en vías públicas, banquetas, calles, carreteras, caminos o brechas, mantas, cartulinas, grafittis, pintas o cualquier otro material que contenga palabras, mensajes, textos o símbolos que produzcan alarma, temor o situaciones de peligro físico o psicológico en la población o en un grupo o sector de ella.
+La misma sanción se aplicará a quien financie o elabore las mantas, cartulinas, grafittis, pintas o cualquier otro material referido en el párrafo anterior.
