@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 7 DE JUNIO DE 2013)
+ARTICULO 60 TER.
+1. La práctica de actividades deportivas tiene como objeto fomentar la solidaridad, el trabajo en equipo, la introyección de normas y valores, reglas, la disciplina, la generación de hábitos y, primordialmente, el cuidado preventivo de la salud en los internos.
+2. Tomando en cuenta las habilidades y aptitudes físicas y mentales de los internos, se fomentarán e implementarán programas y eventos deportivos con la finalidad de garantizar la participación individual, grupal y colectiva de los internos, acorde a la infraestructura y los horarios establecidos en el Centro.
+3. Para garantizar la práctica del deporte, la Subsecretaría promoverá la firma de convenios con autoridades del deporte, que incluyan programas, eventos, recursos humanos y materiales necesarios para su implementación; también se podrá contar con la participación de organizaciones y asociaciones debidamente registradas y acreditadas en la materia, previo acuerdo y autorización de la Subsecretaría.

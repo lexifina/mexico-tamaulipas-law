@@ -1,0 +1,5 @@
+P.O. 7 DE JUNIO DE 2013.
+DECRETO No. LXI-859, POR EL QUE SE DEROGAN EL CAPÍTULO II DEL TÍTULO DÉCIMO OCTAVO, DEL LIBRO SEGUNDO Y LOS ARTÍCULOS 391, 391 BIS, 391 TER, 392, 392 BIS Y 392 TER, DEL CÓDIGO PENAL PARA EL ESTADO DE TAMAULIPAS DE 1987.
+ARTÍCULO PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+ARTÍCULO SEGUNDO. Las disposiciones relativas a los delitos de secuestro previstas en el Código Penal para el Estado de Tamaulipas y de la Ley de Justicia para Adolescentes del Estado vigentes hasta la entrada en vigor del Decreto mediante el cual se expide la Ley General para Prevenir y Sancionar los Delitos en Materia de Secuestro, Reglamentaria de la fracción XXI del artículo 73 de la Constitución Política de los Estados Unidos Mexicanos, seguirán aplicándose por los hechos realizados durante su vigencia. Asimismo, dichos preceptos seguirán aplicándose a las personas procesadas o sentenciadas por los delitos previstos y sancionados por los mismos artículos.
+ARTÍCULO TERCERO. Se derogan todas aquellas disposiciones legales que se opongan al presente Decreto.
