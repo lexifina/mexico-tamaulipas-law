@@ -1,5 +1,5 @@
-N. DE E. PARA CONSULTAR LA VERSIÓN CORREGIDA DE ESTE ORDENAMIENTO, DE CONFORMIDAD CON LA FE DE ERRATAS PUBLICADA EL 27 DE JUNIO DE 2013 EN EL P.O., SE RECOMIENDA ACUDIR AL TEXTO QUE SE VISUALIZA DENTRO DE LA CRONOLOGÍA CORRESPONDIENTE A DICHA FECHA, EN EL ÍNDICE RESPECTIVO DE SU HISTORIA LEGISLATIVA.
 LEY DE LA DEFENSORÍA PÚBLICA PARA EL ESTADO DE TAMAULIPAS
+N. DE E. CONTIENE LA FE DE ERRATAS PUBLICADA EN EL PERIÓDICO OFICIAL DEL 27 DE JUNIO DE 2013.
 Ley publicada en el Anexo al Extraordinario No. 3 del Periódico Oficial del Estado de Tamaulipas, el viernes 7 de junio de 2013.
 EGIDIO TORRE CANTÚ, Gobernador Constitucional del Estado Libre y Soberano de Tamaulipas, a sus habitantes hace saber:
 Que el Honorable Congreso del Estado, ha tenido a bien expedir el siguiente Decreto:
