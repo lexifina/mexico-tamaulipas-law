@@ -1,0 +1,3 @@
+N. DE E. PARA CONSULTAR LA VERSIÓN CORREGIDA DE ESTOS ARTÍCULOS TRANSITORIOS DE CONFORMIDAD CON LA FE DE ERRATAS PUBLICADA EL 27 DE JUNIO DE 2013 EN EL P.O., SE RECOMIENDA ACUDIR AL TEXTO QUE SE VISUALIZA DENTRO DE LA CRONOLOGÍA CORRESPONDIENTE A DICHA FECHA, EN EL ÍNDICE RESPECTIVO DE SU HISTORIA LEGISLATIVA.
+T R A N S I T O R I O S
+ARTÍCULO PRIMERO. La presente Ley deberá ser publicada en el Periódico Oficial del Estado y entrará en vigor de manera sucesiva, conforme a las fechas de aplicación del Código de Procedimientos Penales del Estado de Tamaulipas expedido mediante Decreto No. LXI-475.
