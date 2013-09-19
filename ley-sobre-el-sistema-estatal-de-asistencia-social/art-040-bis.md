@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 18 DE SEPTIEMBRE DE 2013)
+ARTICULO 40 BIS.- Para la liquidación o extinción del Organismo, se requerirá de las mismas formalidades inherentes a su establecimiento, debiéndose prever la elaboración del inventario de activos y pasivos, así como su rendición final de cuentas y el destino de los bienes a su cargo para la realización de los objetivos que motivaron su edificación o adquisición, en un organismo o institución con propósitos o fines homólogos.
