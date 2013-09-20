@@ -1,0 +1,1 @@
+ARTÍCULO TERCERO. La Secretaría de Salud, en un plazo no mayor de seis meses contados a partir de la entrada en vigor de manera gradual del presente Decreto, comenzará a expedir a las personas que habitan en Tamaulipas su Expediente Clínico Electrónico, y a los profesionales de la salud sus claves de acceso al sistema.

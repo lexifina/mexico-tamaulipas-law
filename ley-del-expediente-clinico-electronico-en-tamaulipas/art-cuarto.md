@@ -1,0 +1,1 @@
+ARTÍCULO CUARTO. En cuanto se expidan las disposiciones administrativas derivadas de esta Ley, perderán vigor las cartillas o expedientes clínicos que contengan el historial médico de las personas, siempre y cuando se haya elaborado ya el Expediente Clínico Electrónico respectivo.

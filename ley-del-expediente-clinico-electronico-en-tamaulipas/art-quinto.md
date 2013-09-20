@@ -1,0 +1,1 @@
+ARTÍCULO QUINTO. El Expediente Clínico Electrónico se exigirá en todos los establecimientos de salud, pública, privada y social, una vez que tenga plena vigencia en todo el Estado el presente Decreto.

@@ -1,0 +1,1 @@
+ARTÍCULO SÉPTIMO. En un plazo que no excederá de un año contado a partir de la entrada en vigor de manera gradual de este Decreto, los establecimientos de salud deberán adaptar con infraestructura tecnológica necesaria para hacer uso del Expediente Clínico Electrónico.

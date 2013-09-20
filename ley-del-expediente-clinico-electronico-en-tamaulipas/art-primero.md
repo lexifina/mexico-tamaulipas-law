@@ -1,0 +1,1 @@
+ARTÍCULO PRIMERO. El presente Decreto se publicará en el Periódico Oficial del Estado y entrará en vigor de manera gradual, quedando sujeto a la partida presupuestal asignada en el Decreto del Presupuesto de Egresos que el Ejecutivo envíe al Congreso del Estado, con base en la disponibilidad financiera del Gobierno Estatal.

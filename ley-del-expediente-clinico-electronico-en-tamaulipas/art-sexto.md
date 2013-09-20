@@ -1,0 +1,1 @@
+ARTÍCULO SEXTO. En un plazo que no excederá de noventa días contados a partir de la entrada en vigor de este Decreto, la Secretaría de Salud deberá emitir las demás reglas y sistemas de seguridad a que se sujetará el Expediente Clínico Electrónico.
