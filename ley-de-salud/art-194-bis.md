@@ -1,6 +1,6 @@
 N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO, P.O. 30 DE AGOSTO DE 2012)
-ARTICULO 194 BIS.- Los trasplantes de órganos, tejidos y células en seres humanos vivos podrán llevarse a cabo cuando hayan sido satisfactorios los resultados de las ínvestigaciones realizadas al efecto, el riesgo para la salud y la vida del donante y del receptor sea aceptable, y siempre que existan justificantes de orden terapéutico.
+ARTICULO 194 BIS.- Los trasplantes de órganos, tejidos y células en seres humanos vivos podrán llevarse a cabo cuando hayan sido satisfactorios los resultados de las investigaciones realizadas al efecto, el riesgo para la salud y la vida del donante y del receptor sea aceptable, y siempre que existan justificantes de orden terapéutico.
 Para la realización de trasplantes, se deberá observar lo siguiente:
 I.- Para realizar trasplantes entre vivos, deberán cumplirse los siguientes requisitos respecto del donador:
 a).- Ser mayor de edad y estar en pleno uso de sus facultades mentales;
