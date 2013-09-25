@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 24 DE SEPTIEMBRE DE 2013)
+ARTICULO 92 Ter.- Para efectos del nombramiento del representante de los Ayuntamientos, el Congreso lanzará la convocatoria a más tardar 20 días antes del término del vencimiento del cargo del representante en funciones, debiendo cerrar a los 5 días posteriores a su publicación en el Periódico Oficial del Estado.
+Cada Ayuntamiento podrá enviar una propuesta, anexando para tal efecto los documentos que acrediten el cumplimiento de los requisitos establecidos en el artículo 94 de la presente Ley. En caso de no recibir propuesta alguna, el Congreso del Estado o la Comisión Permanente designará al representante de los Ayuntamientos, atendiendo a los requisitos señalados en el artículo 94 de esta Ley.
