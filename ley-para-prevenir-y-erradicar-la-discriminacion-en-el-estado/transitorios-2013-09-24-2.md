@@ -1,0 +1,4 @@
+P.O. 24 DE SEPTIEMBRE DE 2013.
+DECRETO NÚMERO LXI-904, POR EL QUE SE REFORMAN LOS ARTÍCULOS 15 INCISOS A), E), F), G), H) E I) DEL PÁRRAFO 2, 19 PÁRRAFO 4, 20 PÁRRAFO 2 INCISO D) Y 22; SE ADICIONAN EL INCISO J) DEL PÁRRAFO 2 DEL ARTÍCULO 15, EL PÁRRAFO 3 DEL ARTÍCULO 20 Y EL PÁRRAFO 2 DEL ARTÍCULO 22; Y SE DEROGA EL INCISO E) DEL ARTÍCULO 22, DE LA LEY PARA PREVENIR Y ERRADICAR LA DISCRIMINACIÓN EN EL ESTADO DE TAMAULIPAS.
+ARTÍCULO PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+ARTÍCULO SEGUNDO. Se derogan las disposiciones que se opongan a los preceptos aprobados conforme a este Decreto.
