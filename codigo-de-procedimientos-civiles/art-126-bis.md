@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 25 DE SEPTIEMBRE DE 2013)
+ARTICULO 126 Bis.- Los convenios de mediación, conciliación, transacción o laudos provenientes de los mecanismos alternativos para la solución de conflictos realizados antes del inicio de un procedimiento jurisdiccional, tienen la categoría de cosa juzgada o en su caso de sentencia ejecutoria, siempre que dichos convenios se encuentren certificados y ratificados ante el Director del Centro de Mecanismos Alternativos del Poder Judicial o en su caso del Jefe de la Unidad Regional.
