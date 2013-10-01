@@ -1,4 +1,4 @@
-LEY DE VALUACION DEL ESTADO DE TAMAULIPAS
+LEY DE VALUACIÓN DEL ESTADO DE TAMAULIPAS
 Ley publicada en el Periódico Oficial del Estado de Tamaulipas, el martes 9 de noviembre de 2010.
 EUGENIO HERNANDEZ FLORES, Gobernador Constitucional del Estado Libre y Soberano de Tamaulipas, a sus habitantes hace saber:
 Que el Honorable Congreso del Estado, ha tenido a bien expedir el siguiente Decreto:
