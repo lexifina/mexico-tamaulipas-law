@@ -1,0 +1,5 @@
+ARTÍCULO SEXTO. Los órganos de gobierno de los organismos operadores municipales, descentralizados del Estado, regionales e intermunicipales responsables de prestar los servicios públicos inherentes al agua potable y drenaje sanitario, deberán expedir los criterios y disposiciones administrativas necesarias para el cumplimiento de lo dispuesto en párrafos 2 y 3 del artículo 40 de esta Ley.
+SALÓN DE SESIONES DEL H. CONGRESO DEL ESTADO.- Cd. Victoria, Tam., a 13 de septiembre del año 2013.- DIPUTADO PRESIDENTE.- JOSÉ ANTONIO MARTÍNEZ TORRES.- Rúbrica.- DIPUTADA SECRETARIA.- GRISELDA CARRILLO REYES.- Rúbrica.- DIPUTADO SECRETARIO.- ROLANDO GONZÁLEZ TEJEDA.- Rúbrica."
+Por tanto, mando se imprima, publique, circule y se le dé el debido cumplimiento.
+Dado en la residencia del Poder Ejecutivo, en Victoria, Capital del Estado de Tamaulipas, a los diecisiete días del mes de septiembre del año dos mil trece.
+ATENTAMENTE.- SUFRAGIO EFECTIVO. NO REELECCIÓN.- EL GOBERNADOR CONSTITUCIONAL DEL ESTADO.- EGIDIO TORRE CANTÚ.- Rúbrica.- EL SECRETARIO GENERAL DE GOBIERNO.- HERMINIO GARZA PALACIOS.- Rúbrica.

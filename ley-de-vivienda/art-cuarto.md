@@ -1,0 +1,1 @@
+ARTÍCULO CUARTO. El Instituto elaborará el proyecto de Reglamento del Sistema Estatal de Vivienda y lo someterá a aprobación de su órgano de gobierno dentro de los 180 días siguientes al inicio de vigencia de esta Ley, a fin de ponerlo a consideración del Ejecutivo del Estado.

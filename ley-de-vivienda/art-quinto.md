@@ -1,0 +1,1 @@
+ARTÍCULO QUINTO. Dentro de los 90 días posteriores al inicio de vigencia de esta Ley, los Ayuntamientos deberán expedir las disposiciones administrativas necesarias para la instalación y funcionamiento de la ventanilla única de trámites relacionados con la vivienda a que se refiere la fracción XV del artículo 7 de este ordenamiento.
