@@ -1,0 +1,3 @@
+P.O. 17 DE DICIEMBRE DE 2013.
+ARTÍCULO PRIMERO. El presente Decreto se publicará en el Periódico Oficial del Estado y entrará en vigor el 1 de enero del 2014, con excepción del artículo 9 Bis de la Ley de Coordinación Fiscal del Estado de Tamaulipas adicionado en este Decreto, que entrará en vigor el 1° de enero de 2015.
+ARTÍCULO SEGUNDO. El porcentaje correspondiente a los Municipios del Estado, de la recaudación del Impuesto sobre Tenencia o Uso de Vehículos de carácter estatal establecido en el artículo 44 de la Ley de Coordinación Fiscal del Estado de Tamaulipas, no obstante lo establecido en el citado artículo, durante el año 2014 será equivalente al 37 por ciento de los ingresos obtenidos por dicho Impuesto.
