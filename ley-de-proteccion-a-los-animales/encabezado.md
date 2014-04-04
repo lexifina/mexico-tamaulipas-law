@@ -1,4 +1,4 @@
-LEY DE PROTECCION A LOS ANIMALES PARA EL ESTADO DE TAMAULIPAS
+LEY DE PROTECCIÓN A LOS ANIMALES PARA EL ESTADO DE TAMAULIPAS
 Ley publicada en el Anexo del Periódico Oficial del Estado de Tamaulipas, el jueves 16 de diciembre de 2010.
 EUGENIO HERNANDEZ FLORES, Gobernador Constitucional del Estado Libre y Soberano de Tamaulipas, a sus habitantes hace saber:
 Que el Honorable Congreso del Estado, ha tenido a bien expedir el siguiente Decreto:

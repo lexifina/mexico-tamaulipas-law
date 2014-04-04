@@ -1,0 +1,4 @@
+P.O. 3 DE ABRIL DE 2014.
+ARTÍCULO PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+ARTÍCULO SEGUNDO. Las disposiciones relativas a los delitos de trata de personas previstas en la Ley para Prevenir, Combatir y Sancionar la Trata de Personas en el Estado de Tamaulipas y en el Código de Procedimientos Penales para el Estado de Tamaulipas vigentes hasta la entrada en vigor del Decreto mediante el cual se expide la Ley General para Prevenir, Sancionar y Erradicar los Delitos en Materia de Trata de Personas y para la Protección y Asistencia a las Víctimas de estos Delitos, seguirán aplicándose por los hechos realizados durante su vigencia. Asimismo, dichos preceptos seguirán aplicándose a las personas procesadas o sentenciadas por los delitos previstos y sancionados por los mismos artículos.
+ARTÍCULO TERCERO. Se derogan todas aquellas disposiciones legales que se opongan al presente Decreto.
