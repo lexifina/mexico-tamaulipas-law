@@ -4,7 +4,7 @@ CAPITULO III
 DEL NARCOMENUDEO
 N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO, P.O. 16 DE DICIEMBRE DE 2010)
-ARTICULO 204 BIS. Para los efectos de este capítulo se entenderá por:
+ARTICULO 204 BIS.- Para los efectos de este capítulo se entenderá por:
 I. Comercio: La venta, compra, adquisición o enajenación de algún narcótico;
 II. Farmacodependencia: Es el conjunto de fenómenos de comportamiento, cognoscitivos y fisiológicos, que se desarrollan luego del consumo repetido de estupefacientes o psicotrópicos de los previstos en los artículos 237 y 245, fracciones I a III, de la Ley General de Salud;
 III. Farmacodependiente: Toda persona que presenta algún signo o síntoma de dependencia a estupefacientes o psicotrópicos;
