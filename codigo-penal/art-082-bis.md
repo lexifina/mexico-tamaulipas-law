@@ -1,2 +1,3 @@
-(ADICIONADO, P.O. 25 DE DICIEMBRE DE 2001)
-ARTICULO 82 Bis.- Si el delito es continuado la sanción se aumentará de una mitad del mínimo hasta las dos terceras partes del máximo de la pena que la ley prevea para el delito cometido, sin que exceda de cincuenta años.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+(REFORMADO, P.O. 26 DE JUNIO DE 2014)
+ARTICULO 82 BIS.- No habrá concurso cuando las conductas constituyan un delito continuado; sin embargo, en estos casos se aumentará la sanción penal hasta en una mitad de la correspondiente al máximo del delito cometido.
