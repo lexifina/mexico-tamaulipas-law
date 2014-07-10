@@ -1,5 +1,4 @@
 LEY DEL EXPEDIENTE CLÍNICO ELECTRÓNICO EN TAMAULIPAS
-N. DE E. DE CONFORMIDAD CON EL ARTÍCULO PRIMERO TRANSITORIO, EL PRESENTE ORDENAMIENTO ENTRARÁ EN VIGOR DE MANERA GRADUAL, QUEDÁNDO SUJETO A LA PARTIDA PRESUPUESTAL ASIGNADA EN EL DECRETO DEL PRESUPUESTO DE EGRESOS QUE EL EJECUTIVO ENVÍE AL CONGRESO DEL ESTADO, CON BASE EN LA DISPONIBILIDAD FINANCIERA DEL GOBIERNO ESTATAL.
 Ley publicada en el Periódico Oficial del Estado de Tamaulipas, el martes 17 de septiembre de 2013.
 EGIDIO TORRE CANTÚ, Gobernador Constitucional del Estado Libre y Soberano de Tamaulipas, a sus habitantes hace saber:
 Que el Honorable Congreso del Estado, ha tenido a bien expedir el siguiente Decreto:

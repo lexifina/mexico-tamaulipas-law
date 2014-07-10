@@ -1,5 +1,1 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
-(ADICIONADO, P.O. 16 DE DICIEMBRE DE 2010)
-ARTICULO 204 SEXTUS.- El Ministerio Público no ejercerá acción penal por el delito previsto en el artículo anterior, en contra de quien sea farmacodependiente o consumidor y posea alguno de los narcóticos señalados en la tabla, en igual o inferior cantidad a la prevista en la misma, para su estricto consumo personal y fuera de los lugares señalados en la fracción II del artículo 203 Ter de éste Código.
-La autoridad ministerial informará al consumidor la ubicación de las instituciones o centros para el tratamiento médico o de orientación para la prevención de la farmacodependencia.
-El Ministerio Público hará reporte del no ejercicio de la acción penal a la autoridad sanitaria del lugar donde se adopte la resolución o la más cercana, con el propósito de que ésta promueva la correspondiente orientación médica o de prevención. La información recibida por la autoridad sanitaria no deberá hacerse pública pero podrá usarse, sin señalar identidades, para fines estadísticos.
+ARTICULO 204 SEXTUS.- (DEROGADO, P.O. 9 DE JULIO DE 2014)

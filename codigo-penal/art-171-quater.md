@@ -1,12 +1,13 @@
 (ADICIONADO CON EL ARTÍCULO QUE LO INTEGRA, P.O. 3 DE MAYO DE 2011)
 CAPITULO V
 ATENTADOS A LA SEGURIDAD DE LA COMUNIDAD
-(REFORMADO PRIMER PÁRRAFO, P.O. 31 DE AGOSTO DE 2011)
-ARTICULO 171 Quáter.- Comete el delito de atentado contra la seguridad de la comunidad y se le aplicará una sanción de siete a quince años de prisión y multa de doscientos a cuatrocientos días de salario, a quien sin causa justificada incurra en dos o más supuestos contenidos en cualquiera de las siguientes fracciones:
-(ADICIONADA, P.O. 3 DE MAYO DE 2011)
-I.- Posea o porte en su persona, en el vehículo en el que se encuentre o se le relacione con éste, o en el lugar donde se le capture, uno o varios instrumentos que puedan ser utilizados para agredir, y que no justifique que sea utilizado en actividades laborales o recreativas;
-(ADICIONADA, P.O. 3 DE MAYO DE 2011)
-II.- Posea o porte, en su persona, en el vehículo en el que se encuentre o se le relacione con éste, en su domicilio o en el lugar donde se le capture, uno o más aparatos o equipos de comunicación de cualquier tipo, que hubieren sido contratados con documentación propia y verdadera, cuando tenga relación con el artículo 188 Bis, o falsa, o de terceros sin su conocimiento, o utilizados sin la autorización de éstos, o que por su origen, a la autoridad le resulte imposible conocer la identidad real del usuario del aparato o equipo de comunicación;
+(REFORMADO PRIMER PÁRRAFO, P.O. 9 DE JULIO DE 2014)
+ARTICULO 171 QUATER.- Comete el delito de atentado contra la seguridad de la comunidad y se le aplicará una sanción de siete a quince años de prisión y multa de doscientos a cuatrocientos días de salario, a quien sin causa justificada incurra en cualquiera de las siguientes fracciones:
+(NOTA: EL 7 DE JULIO DE 2015, EL PLENO DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN, EN EL CONSIDERANDO SEXTO, ASÍ COMO EN EL RESOLUTIVO SEGUNDO DE LA SENTENCIA DICTADA AL RESOLVER LA ACCIÓN DE INCONSTITUCIONALIDAD 95/2014, DECLARÓ LA INVALIDEZ DE LA FRACCIÓN I DE ESTE ARTÍCULO INDICADA CON MAYÚSCULAS, LA CUAL SURTIÓ EFECTOS RETROACTIVOS A PARTIR DEL 10 DE JULIO DE 2014 DE ACUERDO A LAS CONSTANCIAS QUE OBRAN EN LA SECRETARÍA GENERAL DE ACUERDOS DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN. DICHA SENTENCIA PUEDE SER CONSULTADA EN LA DIRECCIÓN ELECTRÓNICA http://www2.scjn.gob.mx/expedientes/).
+(REFORMADA, P.O. 9 DE JULIO DE 2014)
+I.- POSEA O PORTE, EN SU PERSONA, EN EL VEHÍCULO EN EL QUE SE ENCUENTRE O SE LE RELACIONE CON ÉSTE, O EN EL LUGAR DONDE SE LE CAPTURE, UNO O VARIOS INSTRUMENTOS FABRICADOS CON CLAVOS, VARILLAS O CUALQUIER OTRO MATERIAL, QUE PUEDAN SER UTILIZADOS PARA DAÑAR O IMPEDIR EL PASO DE LOS VEHÍCULOS CONDUCIDOS POR PARTICULARES O POR LOS ELEMENTOS DE LAS FUERZAS ARMADAS O LAS INSTITUCIONES DE SEGURIDAD PÚBLICA;
+(REFORMADA, P.O. 9 DE JULIO DE 2014)
+II.- Posea o porte, en su persona, en el vehículo en el que se encuentre o se le relacione con éste, en su domicilio o en el lugar donde se le capture, uno o más aparatos o equipos de comunicación de cualquier tipo, que hubieren sido contratados con documentación falsa, o de terceros sin su conocimiento, o utilizados sin la autorización de éstos, o que por su origen a la autoridad le resulte imposible conocer la identidad real del usuario del aparato o equipo de comunicación;
 (ADICIONADA, P.O. 3 DE MAYO DE 2011)
 III.- Posea o porte, en su persona, en el vehículo en el que se encuentre o se le relacione con éste, en su domicilio o en el lugar donde se le capture, uno o varios equipos o artefactos que permitan la intervención, escucha o transmisión de datos con respecto a canales de comunicación oficiales o de comunicaciones privadas;
 (ADICIONADA, P.O. 3 DE MAYO DE 2011)
