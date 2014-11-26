@@ -1,0 +1,2 @@
+ARTÍCULO ÚNICO. Se expide la Ley que regula el Aseguramiento, Administración, Enajenación y Disposición Final de Vehículos Automotores, Accesorios o Componentes Abandonados para el Estado de Tamaulipas, para quedar como sigue:
+LEY QUE REGULA EL ASEGURAMIENTO, ADMINISTRACIÓN, ENAJENACIÓN Y DISPOSICIÓN FINAL DE VEHÍCULOS AUTOMOTORES, ACCESORIOS O COMPONENTES ABANDONADOS PARA EL ESTADO DE TAMAULIPAS.

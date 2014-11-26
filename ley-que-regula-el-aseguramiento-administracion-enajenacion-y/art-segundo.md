@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO. En un plazo no mayor a 60 días a partir de la entrada en vigor del presente Decreto, deberá quedar instalada la Comisión para la Supervisión y Control de la Administración de Vehículos Abandonados del Estado de Tamaulipas.
