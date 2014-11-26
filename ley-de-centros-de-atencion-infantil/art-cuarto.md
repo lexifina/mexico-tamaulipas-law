@@ -1,0 +1,1 @@
+ARTÍCULO CUARTO. Por la importancia social y a fin de garantizar los derechos de las niñas y los niños, el Consejo Estatal de Centros de Atención Infantil, deberá quedar instalado a más tardar dentro de los sesenta días naturales siguientes a la entrada en vigor de la presente Ley.

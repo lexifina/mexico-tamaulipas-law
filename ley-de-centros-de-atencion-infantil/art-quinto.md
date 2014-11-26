@@ -1,0 +1,1 @@
+ARTÍCULO QUINTO. Las autoridades municipales modificarán sus reglamentos para la aplicación de la presente Ley, previendo incluso la clausura del lugar, de no cumplir con los requisitos de uso de suelo y medidas de protección civil que velen por la salud o la vida de las niñas y niños, de conformidad con las disposiciones jurídicas aplicables.
