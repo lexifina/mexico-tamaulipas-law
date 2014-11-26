@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 25 DE NOVIEMBRE DE 2014)
+ARTICULO 20 BIS.- Queda prohibida la circulación de vehículos con cristales, parabrisas o ventanas, rotos o estrellados, o que tengan en los mismos, rótulos, carteles, micas, tintes, pinturas, polarizados y toda clase de objetos que obstruyan la visibilidad del conductor o que impidan a las autoridades encargadas de seguridad pública, tránsito y vialidad, la visión al interior de los vehículos.
+Se exceptúa de lo anterior si tales aditamentos provienen de fábrica, o bien, cuenten con los permisos y la documentación correspondiente o expedidos por las autoridades competentes para tales efectos.
