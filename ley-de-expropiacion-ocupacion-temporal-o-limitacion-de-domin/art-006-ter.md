@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 27 DE NOVIEMBRE DE 2014)
+ARTICULO 6 TER.- Verificada la audiencia señalada en el artículo anterior, el titular de la Secretaría en un término de cinco días hábiles, remitirá el expediente correspondiente al titular del Poder Ejecutivo por conducto de la Secretaría General de Gobierno, para que en un plazo no mayor a 30 días hábiles emita la declaratoria de expropiación, o decrete su improcedencia.

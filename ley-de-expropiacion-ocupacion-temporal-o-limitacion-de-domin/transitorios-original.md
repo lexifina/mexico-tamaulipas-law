@@ -6,4 +6,4 @@ ARTICULO CUARTO.- Todos los negocios en tramitación al entrar en vigor esta Ley
 "SALON DE SESIONES DEL H. CONGRESO DEL ESTADO".- Cd. Victoria, Tam., a 14 de abril de 1992.- Diputado Presidente, C. JAVIER GONZALEZ ALONSO.- Rúbrica.- Diputado Secretario, C. ANTONIO FIGUEROA REA.- Rúbrica.- Diputado Secretario, C. PEDRO RODRIGUEZ MONTOYA.- Rúbrica.
 Por lo tanto, mando se imprima, publique, circule y se le dé el debido cumplimiento.
 Dado en la residencia del Poder Ejecutivo, en Ciudad Victoria, Tamaulipas, a los veintidós días del mes de abril de mil novecientos noventa y dos, El Gobernador Constitucional del Estado, ING. AMERICO VILLARREAL GUERRA.- El Secretario General de Gobierno, LIC. ANIBAL PEREZ VARGAS.- Rúbricas.
-N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
+N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
