@@ -1,0 +1,3 @@
+P.O. 26 DE MARZO DE 2015.
+ARTÍCULO PRIMERO. El presente Decreto deberá publicarse en el Periódico Oficial del Estado, y entrará en vigor en el mismo plazo que establece el Decreto por el que se reforman y adicionan diversas disposiciones de la Ley General del Equilibrio Ecológico y la Protección al Ambiente y de la Ley General de Vida Silvestre, publicado el 9 de enero de 2015 en el Diario Oficial de la Federación.
+ARTÍCULO SEGUNDO. Los Ayuntamientos del Estado, en el ámbito de su respectiva competencia, deben realizar las modificaciones a los ordenamientos que correspondan dentro del plazo de 30 días naturales posteriores a la entrada en vigor de este Decreto, para dar cumplimiento a éste.
