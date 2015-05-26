@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO. Conforme a lo establecido en el artículo que antecede, a partir de la entrada en vigor del presente Decreto, se derogan todas aquellas disposiciones del ámbito estatal que se contrapongan al mismo.
