@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 26 DE MAYO DE 2015)
+Artículo 20 Bis.
+En la planeación de los programas y proyectos para la construcción, equipamiento, mantenimiento, rehabilitación, reforzamiento, reconstrucción y habilitación de la infraestructura física educativa deberán cumplirse las disposiciones de la Ley General para la Inclusión de las Personas con Discapacidad y leyes estatales aplicables. Asimismo, se garantizará la existencia de bebederos suficientes y con suministro continuo de agua potable en cada inmueble de uso escolar conforme a los lineamientos y normas oficiales que emita la Secretaría de Salud en coordinación con la Secretaría de Educación Pública y el Sistema Educativo Estatal.
