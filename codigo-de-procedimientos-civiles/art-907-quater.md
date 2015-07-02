@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 1 DE JULIO DE 2015)
+ARTICULO 907 QUATER.- Una vez iniciado el juicio de adopción, el Juez velará para que las actuaciones judiciales en todo momento sean continuas evitando bajo su más estricta responsabilidad la inactividad procesal, quedando obligado a presenciar y dirigir de manera personal cada una de las diligencias y actuaciones que se practiquen en el proceso y no podrá delegar dicha obligación en persona alguna. El incumplimiento de tal obligación será causa de responsabilidad para el Juez.

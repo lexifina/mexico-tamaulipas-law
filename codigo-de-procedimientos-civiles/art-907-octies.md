@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 1 DE JULIO DE 2015)
+ARTICULO 907 OCTIES.- Ejecutoriada la sentencia que autorice la adopción, el Juez ordenará al Oficial del Registro Civil que señalen los interesados, que cancele mediante una anotación marginal, el registro primario, asentando uno nuevo en los mismos términos del que se levanta para los hijos consanguíneos. En ningún caso se hará mención de ser adoptado en las actas de nacimiento que se expidan, ni aún a mérito de aclaración o anotación.
