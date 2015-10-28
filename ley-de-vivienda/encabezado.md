@@ -1,5 +1,4 @@
 LEY DE VIVIENDA PARA EL ESTADO DE TAMAULIPAS
-N. DE E. DE CONFORMIDAD CON EL ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO NO. LXI-907, PUBLICADO EN EL ANEXO DEL P.O. DE 25 DE SEPTIEMBRE DE 2013, INICIA SU VIGENCIA A LOS 90 DÍAS POSTERIORES A SU PUBLICACIÓN.
 Ley publicada en el Periódico Oficial del Estado de Tamaulipas, el miércoles 25 de septiembre de 2013.
 EGIDIO TORRE CANTÚ, Gobernador Constitucional del Estado Libre y Soberano de Tamaulipas, a sus habitantes hace saber:
 Que el Honorable Congreso del Estado, ha tenido a bien expedir el siguiente Decreto:
