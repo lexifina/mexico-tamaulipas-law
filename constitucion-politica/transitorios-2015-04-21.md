@@ -1,0 +1,2 @@
+P.O. 21 DE ABRIL DE 2015.
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado y hasta la entrada en vigor del Decreto No. LXI-903 mediante el cual se adiciona un párrafo segundo al artículo 44 y se reforman la fracción XXXIII del artículo 91 y el cuarto párrafo del artículo 93 de la Constitución Política del Estado Libre y Soberano de Tamaulipas, publicado en el Periódico Oficial del Estado número 113 de fecha 18 de septiembre del 2013.
