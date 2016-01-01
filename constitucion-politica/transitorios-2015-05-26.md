@@ -1,0 +1,4 @@
+P.O. 26 DE MAYO DE 2015.
+DECRETO NÚMERO LXII-576, POR EL QUE SE REFORMAN LOS ARTÍCULOS 45 PÁRRAFO TERCERO Y QUINTO, 58 FRACCIÓN VI, PÁRRAFOS PRIMERO Y TERCERO, 76 FRACCIÓN I, PÁRRAFO PRIMERO, TERCERO Y QUINTO FRACCIÓN II, PÁRRAFOS SEGUNDO, TERCERO, CUARTO, QUINTO Y SEXTO, FRACCIÓN IV, PÁRRAFOS SEGUNDO Y QUINTO, 91 FRACCIÓN VII, 107 ÚLTIMO PÁRRAFO, 114 APARTADO B, FRACCIÓN XXVI, Y 126 ÚLTIMO PÁRRAFO DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO DE TAMAULIPAS EN MATERIA DE FISCALIZACIÓN.
+ARTÍCULO PRIMERO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+ARTÍCULO SEGUNDO. Se derogan todas aquellas normas que se opongan al contenido del presente Decreto, así como a los Acuerdos emitidos por el Consejo Nacional de Armonización Contable respecto a la nueva estructura de la Cuenta Pública, con relación a lo previsto en la Ley General de Contabilidad Gubernamental.
