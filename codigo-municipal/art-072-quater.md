@@ -12,5 +12,7 @@ VIII.- Intervenir, para efectos de verificación, en los actos de entrega y rece
 IX.- Informar al Ayuntamiento de sus programas de trabajo anuales, y trimestralmente del avance y resultados de éstos, así como de las irregularidades de las que estime exista responsabilidad alguna.
 (REFORMADA, P.O. 7 DE JULIO DE 2015)
 X.- Asistir y participar en los procesos de adjudicación de las obras públicas, así como en las actas entrega-recepción, por parte del contratista al Municipio y en su caso del Municipio al organismo operador.
+(ADICIONADA, P.O. 10 DE MARZO DE 2016)
+XI.- Prever lo conducente para salvaguardar, al término del período de una administración, la información relativa a los recursos humanos, materiales y financieros del Ayuntamiento, así como la información pública de oficio que deba archivarse, difundirse y actualizarse en términos de las leyes de transparencia y contabilidad gubernamental, con el objeto de garantizar la existencia de la misma en el proceso de entrega-recepción.
 (ADICIONADA, P.O. 7 DE JULIO DE 2015)
-XI.- Las demás que con relación al ramo le encomiende el Ayuntamiento.
+XII.- Las demás que con relación al ramo le encomiende el Ayuntamiento.
