@@ -1,0 +1,3 @@
+P.O. 21 DE ABRIL DE 2016.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. LXII-944, MEDIANTE EL CUAL SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES DE LA LEY DE VIVIENDA PARA EL ESTADO DE TAMAULIPAS".]
+ARTICULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
