@@ -1,0 +1,4 @@
+P.O. 18 DE MAYO DE 2016.
+[N. DE E. TRANSITORIOS DEL "DECRETO NO. LXII-950, MEDIANTE EL CUAL SE REFORMAN LOS ARTÍCULOS 7, 39 Y 40 DE LA LEY DE FOMENTO A LA INVESTIGACIÓN CIENTÍFICA Y TECNOLÓGICA EN EL ESTADO DE TAMAULIPAS; SE REFORMA LA FRACCIÓN XXVI Y SE ADICIONA UNA FRACCIÓN XXVII, RECORRIENDO EN SU ORDEN NATURAL LA ACTUAL DEL ARTÍCULO 47 DE LA LEY DE RESPONSABILIDADES DE LOS SERVIDORES PÚBLICOS DEL ESTADO DE TAMAULIPAS".]
+ARTÍCULO PRIMERO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+ARTÍCULO SEGUNDO. Las instituciones, centros y entidades referidas que de acuerdo con sus funciones lleven a cabo actividades de investigación, desarrollo o innovación científica, deberán emitir y hacer pública su normatividad institucional en un plazo no mayor a 180 días a partir de la publicación del presente Decreto.
