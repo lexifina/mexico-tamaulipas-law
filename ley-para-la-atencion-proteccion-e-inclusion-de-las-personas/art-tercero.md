@@ -1,0 +1,1 @@
+ARTÍCULO TERCERO. El Consejo Estatal de Salud someterá a consideración del titular del Ejecutivo Estatal las políticas, programas y proyectos de investigación científica y de formación de recursos humanos, profesionales y técnicos especialistas en la condición del espectro autista en un plazo que no rebase los doce meses a partir de la entrada en vigor del presente Decreto.
