@@ -1,0 +1,3 @@
+P.O. 23 DE JUNIO DE 2016.
+[N. DE E. TRANSITORIO DEL "DECRETO No. LXII-955 MEDIANTE EL CUAL SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES DEL CÓDIGO MUNICIPAL PARA EL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
