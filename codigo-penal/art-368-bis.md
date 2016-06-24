@@ -8,5 +8,6 @@ a) El cónyuge o concubino;
 b) Los parientes consanguíneos en línea recta ascendente o descendente sin limitación de grado;
 c) Los parientes colaterales consanguíneos o afines hasta el cuarto grado; y
 d) Adoptantes o adoptados.
-A quien comete el delito de violencia familiar se le impondrá de uno a cinco años de prisión y perderá el derecho de pensión alimenticia. Asimismo se le sujetará a tratamiento psicológico especializado.
+(REFORMADO, P.O. 23 DE JUNIO DE 2016)
+A quien cometa el delito de violencia familiar se le impondrá de seis meses a cuatro años de prisión y perderá el derecho de pensión alimenticia. Asimismo, se le sujetará a tratamiento psicológico especializado y estará obligado al pago de la reparación del daño de las víctimas.
 Este delito se perseguirá, a petición de parte ofendida.

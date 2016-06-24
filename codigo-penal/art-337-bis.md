@@ -1,9 +1,14 @@
-(ADICIONADO, P.O. 22 DE JUNIO DE 2011)
-ARTICULO 337 Bis.- Comete delito de feminicidio, el hombre que dolosamente, y con uso extremo de violencia, prive de la vida a una mujer por razones de género.
-Será sancionado con prisión de treinta a cincuenta años y multa de mil a cinco mil días de salario.
-Existen razones de género de parte del sujeto activo cuando se realice por alguno de los supuestos siguientes:
-I. Si la víctima presenta indicios de violencia física reiterada; o
-II. Que existan antecedentes de violencia moral o acoso del sujeto activo en contra de la mujer.
-Existe el uso extremo de la violencia, a la víctima cuando:
-I. La víctima presente signos de violencia sexual de cualquier tipo; o
-II. Se le hayan infligido lesiones infamantes, degradantes o mutilaciones, previa o posterior a la privación de la vida.
+(REFORMADO, P.O. 23 DE JUNIO DE 2016)
+ARTICULO 337 BIS.- Comete el delito de feminicidio quien prive de la vida a una mujer por razones de género. Se considera que existen razones de género cuando concurra alguna de las siguientes circunstancias:
+I.- La víctima presente signos de violencia sexual de cualquier tipo;
+II.- A la víctima se le hayan infligido lesiones o mutilaciones infamantes o degradantes, previas o posteriores a la privación de la vida o actos de necrofilia;
+III.- Existan antecedentes o datos de cualquier tipo de violencia en el ámbito familiar, laboral o escolar, del sujeto activo en contra de la víctima;
+IV.- Haya existido entre el activo y la víctima una relación sentimental, afectiva o de confianza;
+V.- Existan datos que establezcan que hubo amenazas relacionadas con el hecho delictuoso, acoso o lesiones del sujeto activo en contra de la víctima;
+VI.- La víctima haya sido incomunicada, cualquiera que sea el tiempo previo a la privación de la vida;
+VII.- El cuerpo de la víctima sea expuesto o exhibido en un lugar público.
+A quien cometa el delito de feminicidio se le impondrán de cuarenta a cincuenta años de prisión y de quinientos a mil días multa.
+Además de las sanciones descritas en el presente artículo, el sujeto activo perderá todos los derechos con relación a la víctima, incluidos los de carácter sucesorio.
+Así también se le condenará a la pérdida de la patria potestad en el caso de que tenga hijos con la víctima.
+En caso de que no se acredite el feminicidio, se aplicarán las reglas del homicidio.
+Al servidor público que retarde o entorpezca maliciosamente o por negligencia la procuración o administración de justicia se le impondrá pena de prisión de tres a ocho años y de quinientos a mil quinientos días multa, además será destituido e inhabilitado de tres a diez años para desempeñar otro empleo, cargo o comisión públicos.
