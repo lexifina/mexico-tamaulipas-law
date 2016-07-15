@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 14 DE JULIO DE 2016)
+ARTICULO 61 BIS.- Para la evaluación de resultados, los programas sociales de manera invariable deberán incluir los indicadores de resultados, gestión y servicios para medir su cobertura, calidad e impacto. Las dependencias del Ejecutivo Estatal, o municipales, ejecutoras de los programas a evaluar, proporcionarán toda la información y las facilidades necesarias para la realización de la evaluación.

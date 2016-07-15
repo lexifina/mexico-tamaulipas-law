@@ -1,0 +1,3 @@
+P.O. 14 DE JULIO DE 2016.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. LXII-975, MEDIANTE EL CUAL SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES DE LA LEY DE AGUAS DEL ESTADO DE TAMAULIPAS".]
+ARTICULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.

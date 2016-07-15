@@ -1,0 +1,3 @@
+P.O. 14 DE JULIO DE 2016.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. LXII-977 MEDIANTE EL CUAL SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES DEL CÓDIGO MUNICIPAL PARA EL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.

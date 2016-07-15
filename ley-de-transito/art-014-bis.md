@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 14 DE JULIO DE 2016)
+ARTICULO 14 Bis.- Todo vehículo automotor que circule por las vías públicas en el Estado y sus municipios, deberá contar y portar en el vehículo, póliza de seguro vigente para responder de los daños a terceros, en su persona o bienes, que con motivo del uso del vehículo automotor pudiera producirse a usuarios, peatones, conductores o terceros, en su persona o patrimonio.
