@@ -1,4 +1,4 @@
-LEY DE DEUDA PUBLICA ESTATAL Y MUNICIPAL DE TAMAULIPAS
+LEY DE DEUDA PÚBLICA ESTATAL Y MUNICIPAL DE TAMAULIPAS
 Ley publicada en el Periódico Oficial del Estado de Tamaulipas, el sábado 30 de diciembre de 1995.
 MANUEL CAVAZOS LERMA, Gobernador Constitucional del Estado Libre y Soberano de Tamaulipas, a sus habitantes hace saber:
 Que el Honorable Congreso del Estado, ha tenido a bien expedir el siguiente Decreto:
