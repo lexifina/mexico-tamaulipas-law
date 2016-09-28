@@ -1,0 +1,4 @@
+P.O. 27 DE SEPTIEMBRE DE 2016.
+[N. DE E. TRANSITORIOS DEL "DECRETO No. LXII-1169 MEDIANTE EL CUAL SE REFORMAN LOS ARTÍCULOS 114 APARTADO B, FRACCIÓN XX Y 115 PÁRRAFO PRIMERO, DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO DE TAMAULIPAS, Y LOS ARTÍCULOS 32 FRACCIÓN IV, 36 FRACCIÓN VI, 121 PÁRRAFO NOVENO, FRACCIÓN V, 122 FRACCIÓN XXI, LA DENOMINACIÓN DEL CAPÍTULO V DEL TÍTULO SÉPTIMO, 144, 145, 146, 173 FRACCIÓN VII, 176, Y 209 FRACCIÓN VI DE LA LEY ORGÁNICA DEL PODER JUDICIAL DEL ESTADO".]
+ARTÍCULO PRIMERO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+ARTÍCULO SEGUNDO. El Consejo de la Judicatura emitirá el Reglamento de la Escuela Judicial, donde se establecerán las atribuciones de la Dirección, de los Departamentos y Unidades administrativas de la Escuela Judicial, para determinar el ámbito de responsabilidad de cada una.
