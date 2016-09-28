@@ -1,0 +1,5 @@
+ARTÍCULO QUINTO. A partir del siguiente ejercicio fiscal, se deberán destinar partidas presupuestales para el fortalecimiento de las instancias en las que incide la presente Ley; asimismo, el Ejecutivo del Estado gestionará ante el Congreso del Estado y la Secretaría de Finanzas la asignación de partidas presupuestales para el fortalecimiento de las entidades encargadas de la aplicación y observancia de esta Ley.
+SALÓN DE SESIONES DEL H. CONGRESO DEL ESTADO.- Cd. Victoria, Tam., a 26 de septiembre del año 2016.- DIPUTADA PRESIDENTA.- PATRICIA GUILLERMINA RIVERA VELÁZQUEZ.- Rúbrica.- DIPUTADO SECRETARIO.- MARCO ANTONIO SILVA HERMOSILLO.- Rúbrica.- DIPUTADA SECRETARIA.- IRMA LETICIA TORRES SILVA.- Rúbrica."
+Por tanto, mando se imprima, publique, circule y se le dé el debido cumplimiento.
+Dado en la residencia del Poder Ejecutivo, en Victoria, Capital del Estado de Tamaulipas, a los veintiséis días del mes de septiembre del año dos mil dieciséis.
+ATENTAMENTE.- SUFRAGIO EFECTIVO. NO REELECCIÓN.- EL GOBERNADOR CONSTITUCIONAL DEL ESTADO.- EGIDIO TORRE CANTÚ.- Rúbrica.- EL SECRETARIO GENERAL DE GOBIERNO.- HERMINIO GARZA PALACIOS.- Rúbrica.

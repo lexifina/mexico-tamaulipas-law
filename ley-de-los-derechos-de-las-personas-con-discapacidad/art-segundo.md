@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO. Se abroga la Ley de Integración Social de Personas con Discapacidad, publicada en el Periódico Oficial del Estado el 19 de febrero de 1997, sus reformas adoptadas, así como las disposiciones que se opongan al presente Decreto.
