@@ -8,8 +8,8 @@ ARTICULO QUINTO. Cuando en el procedimiento de captura de los asientos que obren
 ARTICULO SEXTO. El Reglamento de la presente ley deberá expedirse en un término que no exceda de 180 días naturales posteriores a la entrada en vigor de este ordenamiento.
 (ADICIONADO, P.O. 25 DE JUNIO DE 2008)
 ARTICULO SEPTIMO. Los certificados de reserva de prioridad a que alude el artículo 104 de esta ley, que se hayan solicitado al Registro Público dentro del periodo comprendido del 31 de marzo al 30 de junio de 2008, conservarán su vigencia hasta en tanto sean expedidos, prorrogándose ésta durante 60 días más a partir de su fecha de expedición.
-SALO N DE SESIONES DEL H. CONGRESO DEL ESTADO.- Cd. Victoria, Tam., a 3 de diciembre del año 2007.- DIPUTADO PRESIDENTE.- JESUS EVERARDO VILLARREAL SALlNAS.- Rúbrica; DIPUTADA SECRETARIA.- AIDA ARACELI ACUÑA CRUZ.- Rúbrica.- DIPUTADO SECRETARIO.- FERNANDO ALEJANDRO FERNANDEZ DE LEON.- Rúbrica.
+SALON DE SESIONES DEL H. CONGRESO DEL ESTADO.- Cd. Victoria, Tam., a 3 de diciembre del año 2007.- DIPUTADO PRESIDENTE.- JESUS EVERARDO VILLARREAL SALINAS.- Rúbrica; DIPUTADA SECRETARIA.- AIDA ARACELI ACUÑA CRUZ.- Rúbrica.- DIPUTADO SECRETARIO.- FERNANDO ALEJANDRO FERNANDEZ DE LEON.- Rúbrica.
 Por tanto, mando se imprima, publique, circule y se le dé el debido cumplimiento.
 Dado en la residencia del Poder Ejecutivo, en Ciudad Victoria, Capital del Estado de Tamaulipas, a los siete días del mes de diciembre del año dos mil siete.
 ATENTAMENTE.- SUFRAGIO EFECTIVO. NO REELECCION.- GOBERNADOR CONSTITUCIONAL DEL ESTADO.- EUGENIO HERNANDEZ FLORES.- Rúbrica.- SECRETARIO GENERAL DE GOBIERNO.- ANTONIO MARTINEZ TORRES.- Rúbrica.
-N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
