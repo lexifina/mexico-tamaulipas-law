@@ -15,4 +15,5 @@ b).- Para el caso de los programas en proceso, el total de la inversión realiza
 c).- El lugar geográfico de su realización, la modalidad de inversión y los responsables de su ejecución; y
 d).- La estimación del impacto esperado en grupos vulnerables, género y región.
 VII.- En general, toda la información que se considere útil para proporcionar elementos de juicio para su aprobación.
-En todo caso el proyecto de Presupuesto de Egresos, deberá cumplir con los requisitos, que prevé la fracción II del artículo 61 de la Ley General de Contabilidad Gubernamental.
+(REFORMADO, P.O. 15 DE NOVIEMBRE DE 2016)
+En todo caso el proyecto de Presupuesto de Egresos, deberá cumplir con los requisitos y previsiones que establecen la fracción II del artículo 61 de la Ley General de Contabilidad Gubernamental, así como los artículos 9, 10, 11, 12, 13 y disposiciones transitorias de la Ley de Disciplina Financiera de las Entidades Federativas y los Municipios.

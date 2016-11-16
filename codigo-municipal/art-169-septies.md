@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 15 DE NOVIEMBRE DE 2016)
+ARTICULO 169 Septies.- Los actos u omisiones que impliquen el incumplimiento a los preceptos establecidos a la Ley de Disciplina Financiera de las Entidades Federativas y los Municipios y demás disposiciones aplicables en la materia, serán sancionados de conformidad con lo previsto en la legislación inherente a las responsabilidades administrativas de los servidores públicos y demás disposiciones aplicables, en términos del Título Cuarto de la Constitución Política de los Estados Unidos Mexicanos.
