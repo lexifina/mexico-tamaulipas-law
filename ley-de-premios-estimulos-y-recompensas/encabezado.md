@@ -1,4 +1,4 @@
-LEY DE PREMIOS, ESTIMULOS Y RECOMPENSAS DEL ESTADO DE TAMAULIPAS
+LEY DE PREMIOS, ESTÍMULOS Y RECOMPENSAS DEL ESTADO DE TAMAULIPAS
 Ley publicada en el Periódico Oficial del Estado de Tamaulipas, el sábado 26 de diciembre de 1987.
 Al margen un sello que dice: "Estados Unidos Mexicanos.- Gobierno de Tamaulipas.- Poder Ejecutivo.- Secretaría General".
 EL CIUDADANO AMERICO VILLARREAL GUERRA, Gobernador Constitucional del Estado Libre y Soberano de Tamaulipas, a sus habitantes hace saber:

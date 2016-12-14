@@ -1,4 +1,4 @@
-LEY PARA FOMENTAR LA DONACION ALTRUISTA DE ARTICULOS DE PRIMERA NECESIDAD DEL ESTADO DE TAMAULIPAS
+LEY PARA FOMENTAR LA DONACIÓN ALTRUISTA DE ARTÍCULOS DE PRIMERA NECESIDAD DEL ESTADO DE TAMAULIPAS
 Ley publicada en el Anexo al Periódico Oficial del Estado de Tamaulipas, el miércoles 27 de octubre de 2004.
 TOMAS YARRINGTON RUVALCABA, Gobernador Constitucional del Estado Libre y Soberano de Tamaulipas, a sus habitantes hace saber:
 Que el Honorable Congreso del Estado, ha tenido a bien expedir el siguiente Decreto:
