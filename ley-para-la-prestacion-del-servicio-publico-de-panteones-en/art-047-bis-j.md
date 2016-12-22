@@ -1,0 +1,5 @@
+(ADICIONADO, B.O. 14 DE AGOSTO DE 2007)
+ARTICULO 47 BIS J.- En la extinción de los fideicomisos no considerados organismos descentralizados y contratos análogos se observará lo siguiente:
+I.- El fideicomitente o su equivalente en el contrato análogo, o, en su caso, el Comité Técnico, instruirá a la fiduciaria para que elabore el convenio de extinción, con la participación de la dependencia a la cual se hubiere asignado el fideicomiso o contrato análogo.
+II.- La extinción del fideicomiso o contrato análogo se formalizará mediante la firma del convenio de extinción correspondiente; y
+III.- Realizado lo anterior, las dependencias y entidades a las que se asignen los fideicomisos o que con cargo a su presupuesto se aportaron los recursos presupuestarios fideicomitidos, entregará dentro de los 15 días hábiles posteriores a la Secretaría de Hacienda el convenio de extinción, anexando copia del oficio de entero de recursos públicos estatales remanentes, y solicitarán la cancelación correspondiente en el Registro de fideicomisos, mandatos y contratos análogos del Gobierno del Estado.

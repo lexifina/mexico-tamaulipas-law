@@ -1,0 +1,4 @@
+B.O. 7 DE NOVIEMBRE DE 1991.
+ARTICULO PRIMERO.- La presente ley entrará en vigor al día siguiente de su publicación en el Boletín Oficial del Gobierno del Estado.
+ARTICULO SEGUNDO.- Las facultades otorgadas por cualquier ordenamiento jurídico a las Secretarías de Planeación del Desarrollo, de Fomento Educativo y Cultura, de Infraestructura y Desarrollo Urbano y de Fomento Industrial y Comercio, se entenderán conferidas, respectivamente, a las Secretarías de Planeación del Desarrollo y Gasto Público, de Educación y Cultura, de Infraestructura Urbana y Ecología y de Desarrollo Económico y Productividad, denominación que a cada una de dichas dependencias asigna esta ley.
+Igualmente, las funciones y recursos humanos, materiales y financieros, relacionados con las atribuciones que por virtud de esta ley, se transfieren a una dependencia diversa a la que anteriormente estaban asignados, pasarán a la dependencia competente conforme a este ordenamiento.

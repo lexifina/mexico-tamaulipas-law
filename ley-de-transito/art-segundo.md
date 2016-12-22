@@ -1,2 +1,1 @@
-ARTICULO SEGUNDO.- Se abroga el Reglamento de Tránsito en el Estado de Tamaulipas, expedido por Decreto número 50, de fecha 22 de octubre de 1963, emitido por el Honorable Cuadragésimo Quinto Congreso Constitucional del Estado, publicado en el Periódico Oficial
-número 104, del 28 de diciembre de 1963.
+ARTICULO SEGUNDO.- Se abroga el Reglamento de Tránsito en el Estado de Tamaulipas, expedido por Decreto número 50, de fecha 22 de octubre de 1963, emitido por el Honorable Cuadragésimo Quinto Congreso Constitucional del Estado, publicado en el Periódico Oficial número 104, del 28 de diciembre de 1963.

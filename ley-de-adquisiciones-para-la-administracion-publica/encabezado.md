@@ -1,4 +1,4 @@
-LEY DE ADQUISICIONES PARA LA ADMINISTRACION PUBLICA DEL ESTADO DE TAMAULIPAS Y SUS MUNICIPIOS
+LEY DE ADQUISICIONES PARA LA ADMINISTRACIÓN PÚBLICA DEL ESTADO DE TAMAULIPAS Y SUS MUNICIPIOS
 Ley publicada en el Anexo del Periódico Oficial del Estado de Tamaulipas, el miércoles 29 de diciembre de 2010.
 EUGENIO HERNANDEZ FLORES, Gobernador Constitucional del Estado Libre y Soberano de Tamaulipas, a sus habitantes hace saber:
 Que el Honorable Congreso del Estado, ha tenido a bien expedir el siguiente Decreto:

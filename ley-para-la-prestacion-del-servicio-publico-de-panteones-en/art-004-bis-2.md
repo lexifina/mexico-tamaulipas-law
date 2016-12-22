@@ -1,0 +1,21 @@
+(ADICIONADO, B.O. 21 DE DICIEMBRE DE 2015)
+ARTICULO 4 BIS 2.- La Oficina del Ejecutivo será responsable del seguimiento y evaluación de los Acuerdos e instrucciones dictados en las sesiones de los gabinetes del Ejecutivo del Estado, así como mantener informado al Titular del Ejecutivo del Estado de la situación que guarda el cumplimiento de los compromisos y acuerdos institucionales instruidos en las sesiones de gabinete, así como establecer vínculos de coordinación y colaboración con las dependencias de la administración estatal, para lo cual tendrá las facultades siguientes:
+I. Asesorar y apoyar al Titular del Ejecutivo del Estado en los asuntos que le encomiende, así como formular los estudios, análisis, opiniones y recomendaciones que resulten procedentes;
+II. Proveer al Titular del Ejecutivo del Estado de la información y datos necesarios para sus actividades, toma de decisiones y formulación de mensajes;
+III. Preparar las reuniones de trabajo del Titular del Ejecutivo del Estado con el C. Presidente de la República y con funcionarios de las dependencias de las diferentes instancias de Gobierno, proporcionándole la información necesaria para apoyar la adecuada toma de decisiones;
+IV. Brindar asesoría, estudios y análisis especializados que permitan anticipar escenarios y situaciones específicas de orden económico, social y político en la entidad, sugiriendo estrategias de acción y políticas alternativas para su oportuna solución;
+V. Recopilar y proporcionar al Titular del Ejecutivo del Estado y a los miembros del gabinete información de naturaleza económica, social y política que permita apoyar la oportuna y adecuada toma de decisiones dando prioridad a la formulación, seguimiento y evaluación de las políticas de gobierno;
+VI. Formular análisis y reportes sobre la situación que guarda la administración pública del Estado;
+VII. Convocar, organizar y coordinar las reuniones de gabinete legal y ampliado, así como dar seguimiento y evaluación de los acuerdos que se tomen en los gabinetes especializados, sectorial y regional o cualquier otro, elevando a la consideración del Titular del Ejecutivo del Estado la situación que guarde el cumplimiento de los mismos;
+VIII. Verificar el cumplimiento de los programas e instrucciones que expresamente señale el Titular del Ejecutivo del Estado;
+IX. Orientar y supervisar las acciones de los gabinetes del Ejecutivo del Estado de acuerdo a las políticas, lineamientos y prioridades que fije el Titular del Ejecutivo del Estado;
+X. Emitir recomendaciones para la operación y funcionamiento de los gabinetes del Ejecutivo del Estado;
+XI. Registrar los acuerdos del Titular del Ejecutivo del Estado con los titulares de las dependencias federales, estatales y municipales, así como con otras personas y servidores públicos;
+XII. Dar seguimiento a la agenda política y de gestión gubernamental sobre temas relevantes y estratégicos de la gestión pública, que deban ser considerados por el Titular del Ejecutivo del Estado en las sesiones de gabinete;
+XIII. Dar seguimiento y evaluar los programas de alto impacto social que promuevan las dependencias de la administración pública e informar al Titular del Ejecutivo del Estado de los resultados obtenidos;
+XIV. Diseñar y coordinar los planes y programas de seguimiento a las estrategias gubernamentales, mediante un sistema de indicadores.
+XV. Establecer los programas para brindar la asesoría y el apoyo al Titular del Ejecutivo del Estado en la Conferencia Nacional de Gobernadores y en las distintas conferencias, comités, consejos y reuniones de Gobernadores;
+XVI. Coordinar las oficinas de las comisiones Sonora Arizona y Sonora Nuevo México;
+XVII. Someter a consideración del Titular del Ejecutivo del Estado la información de mejoras que contribuyan al adecuado funcionamiento de la administración pública del Estado;
+XVIII. Coordinar el diseño y ejecución de proyectos de modernización administrativa que incidan en la simplificación y mejora continua de los procesos de trabajo y la calidad de los servicios administrativos sustantivos de las unidades administrativas; y
+XIX. Las demás que le señalen las disposiciones legales aplicables y las que le confiera el Titular del Ejecutivo del Estado, dentro de la esfera de sus atribuciones.

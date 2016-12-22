@@ -1,4 +1,4 @@
-LEY DE PROTECCION PARA LOS NO FUMADORES DEL ESTADO DE TAMAULIPAS
+LEY DE PROTECCIÓN PARA LOS NO FUMADORES DEL ESTADO DE TAMAULIPAS
 Ley publicada en el Periódico Oficial del Estado de Tamaulipas, el miércoles 6 de septiembre de 2006.
 EUGENIO HERNÁNDEZ FLORES, Gobernador Constitucional del Estado Libre y Soberano de Tamaulipas, a sus habitantes hace saber:
 Que el Honorable Congreso del Estado, ha tenido a bien expedir el siguiente Decreto:
