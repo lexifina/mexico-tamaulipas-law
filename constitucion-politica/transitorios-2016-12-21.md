@@ -1,0 +1,4 @@
+P.O. 21 DE DICIEMBRE DE 2016.
+[N. DE E. TRANSITORIOS DEL "DECRETO NO. LXIII-91 MEDIANTE EL CUAL SE REFORMA EL PÁRRAFO SEXTO DEL ARTÍCULO 19 DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO DE TAMAULIPAS, EN MATERIA DE DESINDEXACIÓN DEL SALARIO MÍNIMO".]
+ARTÍCULO PRIMERO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+ARTÍCULO SEGUNDO. Los Ayuntamientos del Estado, deberán realizar las adecuaciones de homologación derivadas del presente Decreto, que correspondan a las disposiciones normativas que hayan expedido en el ejercicio de las atribuciones de su competencia y que se encuentren vigentes, en un plazo que no exceda del 28 de enero de 2017, a efecto de eliminar las referencias al salario mínimo como unidad de cuenta, índice, base, medida o referencia y sustituirlas por las relativas a la Unidad de Medida y Actualización.
