@@ -1,0 +1,11 @@
+(ADICIONADO, P.O. 21 DE DICIEMBRE DE 2016)
+Artículo 52 Nonies. Los sujetos de este impuesto tendrán las siguientes obligaciones:
+I.- Al solicitar su inscripción en el Registro de Contribuyentes de la Secretaría de Finanzas del Estado, utilizando para el efecto las formas aprobadas. La Secretaría de Finanzas podrá inscribir a los contribuyentes cuando tenga a su disposición informes o documentos por este impuesto.
+Las sucursales u otras dependencias de la matriz deberán inscribirse por separado;
+II.- Retener a los usuarios de los servicios de hospedaje, el impuesto correspondiente y enterarlo a las oficinas autorizadas dentro del plazo señalado en este capítulo. Los retenedores de este impuesto están obligados a enterarlo, aún cuando no hubieren hecho la referida retención, pero si hubiesen prestado el servicio;
+III.- Presentar ante las mismas autoridades, los avisos de cambios de datos contenidos en su solicitud de inscripción en los términos del Código Fiscal del Estado;
+IV.- Presentar declaraciones, así como los avisos, datos, documentos e informes que les soliciten las autoridades fiscales en relación con este impuesto, dentro de los plazos y en los lugares señalados al efecto;
+V.- Trasladar, en forma expresa y por separado, a los usuarios de los servicios de hospedaje, el impuesto correspondiente;
+VI.- Conservar, a disposición de las autoridades fiscales y exhibir cuando se les solicite, la documentación comprobatoria de las operaciones realizadas y del pago del impuesto;
+VII.- Cuando los sujetos operen con varios establecimientos, deberán acumular la información de todos ellos en la declaración que corresponda a su domicilio fiscal en el Estado; y
+VIII.- Llevar la contabilidad y expedir comprobantes por las contraprestaciones que obtenga, de conformidad con el Código Fiscal del Estado. Deberá conservar una copia de los comprobantes a disposición de las autoridades fiscales.
