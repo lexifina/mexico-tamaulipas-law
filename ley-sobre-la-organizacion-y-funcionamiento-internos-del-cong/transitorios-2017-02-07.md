@@ -1,0 +1,3 @@
+P.O. 7 DE FEBRERO DE 2017.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. LXIII-114 MEDIANTE EL CUAL EL (SIC) SE REFORMA LA DENOMINACIÓN DE LA LEY SOBRE LA ORGANIZACIÓN Y FUNCIONAMIENTO INTERNOS DEL CONGRESO DEL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor a partir de su expedición y se publicará en el Periódico Oficial del Estado de Tamaulipas.
