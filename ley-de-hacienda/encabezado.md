@@ -1,5 +1,6 @@
 [N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ORDENAMIENTO Y SUS DECRETOS DE MODIFICACIONES, SE SUGIERE CONSULTAR LOS ARTÍCULOS TRANSITORIOS CORRESPONDIENTES.]
 LEY DE HACIENDA PARA EL ESTADO DE TAMAULIPAS
+[N. DE E. CONTIENE LA FE DE ERRATAS AL DECRETO NÚMERO LXIII-92 PUBLICADA EN EL PERIÓDICO OFICIAL DEL 16 DE FEBRERO DE 2017.]
 Ley publicada en el Anexo al Extraordinario No. 5 del Periódico Oficial del Estado de Tamaulipas, el lunes 31 de diciembre de 2007.
 EUGENIO HERNANDEZ FLORES, Gobernador Constitucional del Estado Libre y Soberano de Tamaulipas, a sus habitantes hace saber: Que el Honorable Congreso del Estado, ha tenido a bien expedir el siguiente Decreto:
 Al margen un sello que dice:- "Estados Unidos Mexicanos.- Gobierno de Tamaulipas.- Poder Legislativo.
