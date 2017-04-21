@@ -15,4 +15,4 @@ Por ningún concepto se desarrollará este trabajo en forma que resulte degradan
 (ADICIONADA, P.O. 5 DE JUNIO DE 1999)
 III.- El régimen especial en libertad, que consiste en la aplicación de una o varias de las sanciones establecidas en los incisos f) y k) del artículo 45 de este Código.
 (ADICIONADO, P.O. 5 DE JUNIO DE 1999)
-La duración de las penas sustitutivas no podrán exceder de la correspondiente a la pena de prisión sustituida. En todo caso en que proceda la substitución de la pena, al hacerse el cálculo de la sanción sustitutiva se disminuirá el tiempo durante el cual el sentenciado sufrió prisión preventiva.
+La duración de las penas sustitutivas no podrán (sic) exceder de la correspondiente a la pena de prisión sustituida. En todo caso en que proceda la substitución de la pena, al hacerse el cálculo de la sanción sustitutiva se disminuirá el tiempo durante el cual el sentenciado sufrió prisión preventiva.

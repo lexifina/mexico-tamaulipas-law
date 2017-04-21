@@ -1,7 +1,9 @@
 (ADICIONADO CON EL ARTÍCULO QUE LO INTEGRA, P.O. 30 DE DICIEMBRE DE 2004)
 CAPITULO II
 OPERACIONES CON RECURSOS DE PROCEDENCIA ILÍCITA
-(REFORMADO PRIMER PÁRRAFO, P.O. 21 DE DICIEMBRE DE 2016)
-ARTICULO 443 BIS.- Al que por sí o por interpósita persona adquiera, enajene, administre, custodie, cambie, deposite, dé en garantía, invierta, transporte o transfiera recursos, derechos o bienes de cualquier naturaleza que procedan o representen el producto de una actividad ilícita, con alguno de los siguientes propósitos: ocultar, encubrir o impedir conocer el origen, localización, destino o propiedad de dichos recursos, derechos o bienes, o alentar alguna actividad ilícita, se le impondrán de cinco a quince años de prisión y multa de mil a cinco mil veces el valor diario de la Unidad de Medida y Actualización.
-(ADICIONADO, P.O. 30 DE DICIEMBRE DE 2004)
-Las penas previstas en el párrafo anterior serán aumentadas en una mitad cuando el delito se cometa por servidores públicos; además, se impondrá a dichos servidores, destitución e inhabilitación para desempeñar empleo, cargo o comisión públicos, hasta por un tiempo igual al de la pena de prisión impuesta.
+(REFORMADO, P.O. 21 DE ABRIL DE 2017)
+ARTICULO 443 BIS.- Se le impondrá una sanción de cinco a quince años de prisión y multa de mil a cinco mil veces el valor diario de la Unidad de Medida y Actualización, al que por sí o por interpósita persona realice cualquiera de las siguientes conductas:
+I.- Adquiera, enajene, administre, custodie, posea, cambie, convierta, deposite, retire, dé o reciba por cualquier motivo, invierta, traspase, transporte o transfiera dentro del territorio estatal de éste hacia otro Estado o a la inversa, recursos, derechos, valores o bienes de cualquier naturaleza, cuando tenga conocimiento de que proceden o representan el producto de una actividad ilícita, u
+II.- Oculte, encubra o pretenda ocultar o encubrir la naturaleza, origen, ubicación, destino, movimiento, propiedad o titularidad de recursos, derechos o bienes, cuando tenga conocimiento de que proceden o representan el producto de una actividad ilícita.
+Para efectos de este Capítulo, se entenderá que son producto de una actividad ilícita, los recursos, derechos o bienes de cualquier naturaleza, cuando existan indicios fundados o certeza de que provienen directa o indirectamente, o representan las ganancias derivadas de la comisión de algún delito y no pueda acreditarse su legítima procedencia.
+Cuando la Unidad Especializada de Inteligencia Patrimonial y Económica, en ejercicio de sus facultades y atribuciones, encuentre elementos que permitan presumir la comisión de alguno de los delitos referidos en este Capítulo, deberá denunciar los hechos que probablemente puedan constituir dichos ilícitos.
