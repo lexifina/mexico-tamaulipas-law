@@ -1,0 +1,1 @@
+ARTÍCULO CUARTO. El Reglamento de la Ley de Adopciones para el Estado de Tamaulipas, deberá de expedirse en un plazo no mayor a treinta días hábiles posteriores a la entrada en vigor de la presente Ley.

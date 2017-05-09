@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO. Los procedimientos de adopción que se hayan iniciado con anterioridad a la entrada en vigor del presente Decreto, continuarán desarrollándose conforme al procedimiento que se venía aplicando hasta la entrada en vigor del mismo.
