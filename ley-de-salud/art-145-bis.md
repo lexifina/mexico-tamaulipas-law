@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 19 DE JULIO DE 2006)
-ARTICULO 145 BIS.- Para disminuir los riesgos a la salud de la población, las autoridades sanitarias podrán solicitar a los Ayuntamientos la limpieza, desmonte y demás medidas necesarias en la zonas o áreas de emergencia establecidas, ante el aumento de casos de enfermedades transmitidas por vector, en los lotes baldíos o no edificados que representen un riesgo adicional para su propagación.
+(REFORMADO, P.O. 8 DE MAYO DE 2017)
+ARTICULO 145 BIS.- Para disminuir los riesgos a la salud de la población, las autoridades sanitarias podrán solicitar a los Ayuntamientos la limpieza, desmonte y demás medidas necesarias en las zonas o áreas de emergencia establecidas, ante el aumento de casos de enfermedades transmitidas por vector, en los lotes baldíos o no edificados, viviendas, construcciones o edificaciones abandonadas que representen un riesgo adicional para su propagación.

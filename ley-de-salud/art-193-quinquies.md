@@ -2,6 +2,7 @@ N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ART
 (ADICIONADO, P.O. 30 DE AGOSTO DE 2012)
 ARTICULO 193 QUINQUIES.- La asignación y distribución de órganos y tejidos por casos de urgencia se realizará:
 I.- Directamente en el establecimiento de salud donde se encuentre el paciente que lo requiera, previo dictamen del Comité Interno de Trasplantes tomando en cuenta los siguiente criterios de urgencia por órganos y tejidos:
+:
 a).- Corazón: Al paciente que se encuentra en cualquiera de los grados de insuficiencia cardiaca:
 1.- Grado I. Pacientes con falla primaria del injerto en el periodo inicial, dentro de las primeras 48 horas.
 2.- Grado II. Pacientes en situación de shock cardiogénico y con asistencia ventricular.

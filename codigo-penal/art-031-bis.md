@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (REFORMADO, P.O. 26 DE JUNIO DE 2014)
 ARTICULO 31 BIS.- No habrá conducta punible cuando:
 I.- Se provoca un resultado de afectación o de puesta en peligro concreto por fuerza física exterior irresistible, impedimento físico, movimientos reflejos o cualquier otro supuesto en que haya ausencia de voluntad del inculpado, sin mediar dolo ni culpa; o

@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO, P.O. 26 DE JUNIO DE 2014)
 ARTICULO 20 BIS.- Determinación de la conducta culposa. Para que una conducta sea culposa debe determinarse:
 I.- El deber de cuidado motivo de observación, y la base legal de su existencia y obligatoriedad;

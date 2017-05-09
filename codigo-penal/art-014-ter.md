@@ -1,5 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
-ADICIONADO, P.O. 26 DE JUNIO DE 2014)
 ARTICULO 14 TER.- La tipicidad se integra, cuando la conducta desplegada por el sujeto activo se adecúa a los elementos contenidos en la descripción típica establecida en la norma penal.
 Se considerará adecuada la conducta a la descripción típica cuando se reúnan los siguientes elementos:
 I.- Objetivos: Considerados como tales, aquellos susceptibles de ser captados por el simple conocimiento, que describen la conducta y hacen referencias a personas, cosas y modos de obrar.
