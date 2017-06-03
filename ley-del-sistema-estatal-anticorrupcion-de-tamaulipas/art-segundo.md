@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO. El término para elaborar el programa de trabajo anual a que hace referencia la fracción I del artículo 9, por única ocasión, el mes de presentación del mismo se determinará de conformidad con el inicio del Sistema Estatal Anticorrupción.
