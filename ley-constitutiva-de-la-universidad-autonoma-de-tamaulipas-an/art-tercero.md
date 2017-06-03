@@ -1,2 +1,4 @@
 (REFORMADO, P.O. 15 DE MARZO DE 1967)
 ARTICULO TERCERO.- La Universidad Autónoma de Tamaulipas se integrará con las Facultades, Escuelas, Institutos y Departamentos que se requieran para el debido cumplimiento de sus fines, atendiendo a la complejidad de la cultura, a la especialidad de la ciencia, a la diversificación de la técnica y a la variedad de los servicios de extensión que preste, por lo que podrá crear y suprimir dependencias conforme a sus designios y las necesidades culturales del Estado.
+(ADICIONADO, P.O. 2 DE JUNIO DE 2017)
+Así mismo, contará con un Órgano Interno de Control, dotado de autonomía técnica y de gestión para decidir sobre su funcionamiento y resoluciones. La naturaleza del mismo, así como los requisitos para ocupar su titularidad, la duración en el cargo y el nivel de éste, se establecerán en el Estatuto Orgánico en frecuencia con las disposiciones constitucionales, así como con las leyes generales y locales aplicables.
