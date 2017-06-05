@@ -1,0 +1,1 @@
+Artículo Primero. La presente Ley deberá publicarse en el Periódico Oficial del Estado y entrar en vigor el día 19 de julio de 2017, en que inicia la vigencia de la Ley General de Responsabilidades Administrativas.

@@ -1,0 +1,1 @@
+Artículo Segundo. Se derogan los Títulos Primero, por lo que se refiere a la materia de responsabilidades administrativas, Tercero y Cuarto de la Ley de Responsabilidades de los Servidores Públicos del Estado de Tamaulipas, expedida mediante Decreto No. 10, de fecha 29 de febrero de 1984, publicada en el Periódico Oficial del Estado No. 18, del día 3 de marzo de 1984.
