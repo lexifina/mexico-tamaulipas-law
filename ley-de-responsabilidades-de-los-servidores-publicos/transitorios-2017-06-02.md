@@ -1,0 +1,6 @@
+P.O. 2 DE JUNIO DE 2017.
+[N. DE E. TRANSITORIOS DEL "DECRETO NO. LXIII-183 MEDIANTE EL CUAL SE EXPIDE LA LEY DE RESPONSABILIDADES ADMINISTRATIVAS DEL ESTADO DE TAMAULIPAS".]
+Artículo Primero. La presente Ley deberá publicarse en el Periódico Oficial del Estado y entrar en vigor el día 19 de julio de 2017, en que inicia la vigencia de la Ley General de Responsabilidades Administrativas.
+Articulo Segundo. Se derogan los Títulos Primero, por lo que se refiere a la materia de responsabilidades administrativas, Tercero y Cuarto de la Ley de Responsabilidades de los Servidores Públicos del Estado de Tamaulipas, expedida mediante Decreto No. 10, de fecha 29 de febrero de 1984, publicada en el Periódico Oficial del Estado No 18, del día 3 de marzo de 1984.
+Artículo Tercero. Con la salvedad a que se refiere el transitorio que antecede, se derogan todas aquellas disposiciones estatales que se opongan a lo establecido en el presente ordenamiento.
+Artículo Cuarto. Los procedimientos seguidos a servidores públicos que se encuentren en trámite o pendientes de resolución a la fecha de entrada en vigor de esta Ley, deberán sustanciarse y concluirse de conformidad con las disposiciones vigentes al momento en que se iniciaron tales procedimientos.
