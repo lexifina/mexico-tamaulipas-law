@@ -1,0 +1,3 @@
+P.O. 8 DE JUNIO DE 2017.
+[N. DE E. TRANSITORIOS DEL "DECRETO No. LXIII-188 MEDIANTE EL CUAL SE REFORMAN LOS ARTÍCULOS 26 FRACCIÓN VI Y 28 DEL CÓDIGO MUNICIPAL PARA EL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día de su publicación en el Periódico Oficial del Estado.

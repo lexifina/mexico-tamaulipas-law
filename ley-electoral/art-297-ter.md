@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 8 DE JUNIO DE 2017)
+Artículo 297 Ter.- El Instituto tendrá bajo su responsabilidad el voto de los ciudadanos tamaulipecos en el extranjero, y para ello podrá emitir acuerdos y suscribir convenios con dependencias de competencia federal y estatal; así como con instituciones de carácter social y privado. Para el cumplimiento de las presentes atribuciones, el Consejo General integrará una Comisión Especial para el Voto de los Tamaulipecos en el Extranjero, y aprobará, a propuesta de su Presidente, la Unidad Técnica del Voto en el Extranjero.

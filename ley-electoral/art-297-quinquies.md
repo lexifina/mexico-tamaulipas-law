@@ -1,0 +1,6 @@
+(ADICIONADO, P.O. 8 DE JUNIO DE 2017)
+Artículo 297 Quinquies.- Los ciudadanos tamaulipecos que cumplan con los requisitos para votar conforme a este Libro, podrán solicitar su inscripción en la lista de votantes tamaulipecos en el extranjero de manera individual. El Instituto preverá lo necesario para que, ciento ochenta días antes del inicio del proceso electoral, los ciudadanos interesados puedan obtener su solicitud de inscripción por cualquiera de los siguientes medios:
+I. En las oficinas del Instituto;
+II. En consulados y embajadas de México;
+III. Por vía electrónica; y
+IV. Otros que acuerde el Consejo General.

@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 8 DE JUNIO DE 2017)
+Artículo 297 Vicies.- El Consejo General, una vez aprobados los registros de candidatos a Gobernador del Estado y finalizado el plazo para la inscripción en el listado de tamaulipecos en el extranjero, procederá de inmediato a elaborar las boletas en número que corresponda al listado, así como el material y documentación electoral necesarios. Las boletas deberán llevar la leyenda "voto de tamaulipecos en el extranjero".
