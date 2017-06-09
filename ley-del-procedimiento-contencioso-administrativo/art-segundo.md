@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO. Se derogan todas las disposiciones jurídicas y administrativas que contravengan o se opongan a las adiciones y reformas materia del mismo, sin perjuicio de lo dispuesto en los transitorios siguientes.
