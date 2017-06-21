@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO. Los ayuntamientos de los municipios expedirán dentro del plazo de doce meses, los ordenamientos jurídicos municipales necesarios para regular las materias de su competencia previstas en esta Ley.

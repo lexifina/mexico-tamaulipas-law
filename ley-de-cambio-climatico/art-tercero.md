@@ -1,0 +1,1 @@
+ARTÍCULO TERCERO. El Programa Estatal de Cambio Climático continuará vigente hasta en tanto se publique uno nuevo o actualizado conforme a los contenidos mínimos, disposiciones federales y de esta Ley.

@@ -1,0 +1,1 @@
+ARTÍCULO SEXTO. La Plataforma Estatal de Información sobre Cambio Climático, deberá instalarse dentro de los veinticuatro meses siguientes a la publicación de la presente Ley en el Periódico Oficial del Estado.
