@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO, P.O. 20 DE DICIEMBRE DE 2011)
 Artículo 42 Ter. Tratándose de embarcaciones, veleros, esquís acuáticos motorizados, motocicletas acuáticas y tablas de oleaje con motor, el impuesto será el que resulte de aplicar el procedimiento siguiente:
 I.- El valor total del vehículo de que se trate se multiplicará por el factor de depreciación de acuerdo al año-modelo, de conformidad con la siguiente:

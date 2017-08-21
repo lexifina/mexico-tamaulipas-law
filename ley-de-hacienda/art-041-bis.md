@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO, P.O. 20 DE DICIEMBRE DE 2011)
 Artículo 41 Bis. No se pagará el impuesto en los términos de esta Sección por la tenencia o uso de los siguientes vehículos:
 I.- Los importados temporalmente en los términos de la Ley Aduanera;

@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO, P.O. 20 DE DICIEMBRE DE 2011)
 Artículo 42 Quáter. Tratándose de motocicletas de fabricación nacional o importada, de hasta nueve años-modelo anteriores al de aplicación de este Capítulo, el impuesto será el que resulte de aplicar el procedimiento siguiente:
 I.- El valor total de la motocicleta se multiplicará por el factor de depreciación, de acuerdo al año-modelo de la motocicleta, de conformidad con la siguiente:
