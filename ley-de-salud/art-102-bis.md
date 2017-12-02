@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO
 (ADICIONADO, P.O. 16 DE DICIEMBRE DE 2010)
 ARTICULO 102 BIS.- El Consejo Estatal Contra las Adicciones, es el área especializada para el tratamiento, atención y rehabilitación, con base en sistemas modernos de tratamiento y rehabilitación, fundamentados en el respeto a la integridad y a la libre decisión del farmacodependiente.
 Como área especializada y en base a estudios rigurosos de impacto contra las adicciones deberá:

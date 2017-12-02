@@ -1,0 +1,3 @@
+P.O. 1 DE DICIEMBRE DE 2017.
+[N. DE E. TRANSITORIO DEL "DECRETO LXIII-310 MEDIANTE EL CUAL SE REFORMA LA FRACCIÓN V Y SE ADICIONA LA FRACCIÓN VI AL ARTÍCULO 291 DEL CÓDIGO CIVIL PARA EL ESTADO DE TAMAULIPAS."]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.

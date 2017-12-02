@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO, P.O. 30 DE AGOSTO DE 2012)
 ARTICULO 193 SEXIES.- La distribución de órganos y tejidos por establecimiento de salud, en caso de no urgencia, se hará tomando en cuenta los siguientes criterios en el orden establecido:
 I.- Al establecimiento de salud en donde se lleve a cabo la donación; y,

@@ -1,0 +1,4 @@
+P.O. 1 DE DICIEMBRE DE 2017.
+[N. DE E. TRANSITORIOS DEL "DECRETO LXIII-311 MEDIANTE EL CUAL SE REFORMA EL ARTÍCULO 126 PÁRRAFO QUINTO, DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO DE TAMAULIPAS; Y SE REFORMAN LOS ARTÍCULOS 14, PÁRRAFO TERCERO; 18, FRACCIÓN II, Y 20, DE LA LEY DE LA COMISIÓN DE DERECHOS HUMANOS DEL ESTADO DE TAMAULIPAS".]
+ARTÍCULO PRIMERO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial de Estado.
+ARTÍCULO SEGUNDO. El término de seis años establecido mediante el presente Decreto para el período de encargo del Presidente y de los miembros del Consejo Consultivo de la Comisión de Derechos Humanos, empezará a surtir efectos a partir de los subsecuentes nombramientos que se deriven de la sustitución de los actuales encargos de las figuras jurídicas antes referidas.

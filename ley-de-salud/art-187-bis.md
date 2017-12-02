@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO, P.O. 30 DE AGOSTO DE 2012)
 ARTICULO 187 BIS.- Para efectos de este Título, la pérdida de la vida ocurre cuando se presentan la muerte encefálica o el paro cardíaco irreversible.
 La muerte encefálica se determina cuando se verifican los siguientes signos:

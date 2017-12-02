@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO, P.O. 30 DE AGOSTO DE 2012)
 ARTICULO 190 TER.- Los órganos, tejidos y células susceptibles de ser donados son:
 I.- Una persona viva puede donar un riñón, un segmento hepático, un lóbulo pulmonar, sangre, medula ósea, hueso, duramadre y placenta;

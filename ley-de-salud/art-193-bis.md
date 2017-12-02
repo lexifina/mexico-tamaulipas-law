@@ -1,3 +1,2 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO, P.O. 30 DE AGOSTO DE 2012)
 ARTICULO 193 BIS.- Cualquier órgano o tejido que haya sido extraído, desprendido o seccionado por intervención quirúrgica, accidente o hecho ilícito y que sanitariamente constituya un desecho, deberá ser manejado en condiciones higiénicas y su destino final se hará conforme a las disposiciones generales aplicables, salvo que se requiera para fines terapéuticos, de docencia o de investigación, en cuyo caso los establecimientos de salud podrán disponer de ellos o remitirlos a instituciones docentes autorizadas por la Secretaría de Salud del gobierno federal.

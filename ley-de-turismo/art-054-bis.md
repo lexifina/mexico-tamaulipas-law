@@ -1,0 +1,9 @@
+(ADICIONADO, P.O. 1 DE DICIEMBRE DE 2017)
+ARTÍCULO 54 BIS.
+1. La inversión turística es la aplicación o colocación de bienes o capital con fines turísticos productivos.
+2. La Secretaría establecerá en el mes de septiembre de cada año el Plan de Trabajo, en el que se registrará el proyecto de inversión turística en el Estado, con el objetivo de gestionar los recursos necesarios para generar medidas que busquen el desarrollo económico y social del sector.
+3. La Secretaría fomentará el desarrollo de inversión en el Estado a través del diseño de políticas públicas enfocadas a dicho fin.
+4. La Secretaría, conjuntamente con asociaciones civiles, instituciones públicas, privadas y sociales, organismos gubernamentales federales, estatales y municipales, en función de sus respectivas competencias, promoverá a través de las herramientas que le competa el desarrollo de micro, pequeñas y medianas empresas con el objetivo de contribuir a la creación de empleos y oferta turística competitiva en el sector.
+5. Se deberán desarrollar programas de mejora de infraestructura turística que creen las condiciones que permitan el desarrollo de la inversión turística en el Estado, así como el aumento en la competitividad en el sector.
+6. La Secretaría, conjuntamente y en coordinación con asociaciones civiles, instituciones públicas, sociales y privadas, organismos gubernamentales federales, estatales y municipales, deberá detectar así como promover oportunidades de inversión en el sector turístico del Estado.
+7. Todas aquellas instituciones públicas, sociales o privadas y organismos que dentro de sus planes, programas o acciones contemplen o tengan como finalidad la promoción o desarrollo del sector turístico en el Estado, deberán consultar a la Secretaría, con el objetivo de homologar y potencializar los esfuerzos para desarrollar el sector.

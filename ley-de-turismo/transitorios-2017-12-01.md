@@ -1,0 +1,3 @@
+P.O. 1 DE DICIEMBRE DE 2017.
+[N. DE E. TRANSITORIO DEL "DECRETO LXIII-307 MEDIANTE EL CUAL SE REFORMA EL ARTÍCULO 57; Y SE ADICIONAN LOS ARTÍCULOS 54 BIS Y 54 TER DE LA LEY DE TURISMO DEL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.

@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO, P.O. 30 DE AGOSTO DE 2012)
 ARTICULO 190 BIS.- La donación de órganos, tejidos, células y cadáveres, consiste en el consentimiento expreso o tácito de la persona para que, en vida o después de su muerte, según sea el caso, su cuerpo o cualquiera de sus componentes se utilicen para trasplantes, de acuerdo a lo siguiente:
 I.- Donación Expresa.
