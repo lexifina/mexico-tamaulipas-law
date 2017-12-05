@@ -1,6 +1,7 @@
-[N. DE E. PARA CONSULTAR LA VERSIÓN CORREGIDA DE ESTE ORDENAMIENTO, DE CONFORMIDAD CON LA FE DE ERRATAS PUBLICADA EL 5 DE DICIEMBRE DE 2017 EN EL P.O. DEL ESTADO DE TAMAULIPAS, SE RECOMIENDA ACUDIR AL TEXTO QUE SE VISUALIZA DENTRO DE LA CRONOLOGÍA CORRESPONDIENTE A DICHA FECHA, EN EL ÍNDICE RESPECTIVO DE SU HISTORIA LEGISLATIVA.]
 LEY PARA LA PROTECCIÓN DE PERSONAS DEFENSORAS DE DERECHOS HUMANOS Y PERIODISTAS PARA EL ESTADO DE TAMAULIPAS
-Ley publicada en el Extraordinario Número 13 del Periódico Oficial del Estado de Tamaulipas, el viernes 1 de diciembre de 2017.
+[N. DE E. LA FE DE ERRATAS PUBLICADA EN EL P.O. EL 5 DE DICIEMBRE DE 2017 NO APLICA AL ARTICULADO DEL DECRETO NO. LXIII-313 PUBLICADO EN EL P.O. DE 1 DE DICIEMBRE DE 2017.]
+(F. DE E., P.O. DE 5 DE DICIEMBRE DE 2017)
+Ley publicada en el Anexo al Extraordinario Número 13 del Periódico Oficial del Estado de Tamaulipas, el viernes 1 de diciembre de 2017.
 FRANCISCO JAVIER GARCÍA CABEZA DE VACA, Gobernador Constitucional del Estado Libre y Soberano de Tamaulipas, a sus habitantes hace saber:
 Que el Honorable Congreso del Estado, ha tenido a bien expedir el siguiente Decreto:
 Al margen un sello que dice:- "Estados Unidos Mexicanos.- Gobierno de Tamaulipas.- Poder Legislativo.
