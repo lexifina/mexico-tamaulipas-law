@@ -1,0 +1,3 @@
+P.O. 15 DE DICIEMBRE DE 2017.
+[N. DE E. TRANSITORIO DEL DECRETO LXIII-366 POR EL QUE "SE REFORMA LA FRACCIÓN IX, DEL ARTÍCULO 15, DE LA LEY DE PROMOCIÓN A LA LECTURA Y CREACIÓN DE LIBROS PARA EL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.

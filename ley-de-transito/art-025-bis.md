@@ -1,5 +1,5 @@
 (ADICIONADO, P.O. 21 DE DICIEMBRE DE 2010)
-ARTICULO 25 Bis.- El permiso que refiere el artículo anterior, deberá ajustarse a lo siguiente:
+ARTICULO 25 BIS.- El permiso que refiere el artículo anterior, deberá ajustarse a lo siguiente:
 I. El permiso le permitirá estacionarse en los lugares reservados para las mujeres embarazadas.
 II. El permiso será expedido por el Estado a través de los Sistemas para el Desarrollo Integral de la Familia de los Municipios, una vez que se acredite plenamente el estado de embarazo, de quien acude a solicitarlo;
 III. Se acreditará el estado de embarazo mediante la constancia de gravidez oficial correspondiente.

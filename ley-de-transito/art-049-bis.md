@@ -7,8 +7,8 @@ a).- Desde dos veces el valor diario de la Unidad de Medida y Actualización, al
 b).- Desde una vez el valor diario de la Unidad de Medida y Actualización, a quien infrinja lo establecido en los artículos 19 Bis y 19 Ter, fracciones II y III, la cual no podrá ser condonada ni reducida;
 (REFORMADO, P.O. 21 DE DICIEMBRE DE 2016)
 c).- Desde cincuenta veces el valor diario de la Unidad de Medida y Actualización, a quien infrinja lo establecido en el artículo 19 Ter, fracción I, incisos a), b) y c) la cual no podrá ser condonada ni reducida, igual multa a los menores de dieciocho años, que cuenten con licencia provisional e infrinjan lo establecido en este artículo, los que serán remitidos a la autoridad correspondiente quien deberá hacer del conocimiento de los padres o tutores, o de quienes ejerzan la patria potestad o la custodia, de la infracción cometida y la sanción correspondiente. Los padres serán responsables solidarios por el pago de la multa impuesta; y,
-(REFORMADO, P.O. 21 DE DICIEMBRE DE 2016)
-d).- Desde diez veces el valor diario de la Unidad de Medida y Actualización, a quien se estacione en lugar exclusivo para discapacitados, sin acreditar fehacientemente que el conductor o alguno de sus ocupantes se encuentra en ese supuesto, sanción que no podrá ser condonada ni reducida.
+(REFORMADO, P.O. 15 DE DICIEMBRE DE 2017)
+d).- Desde diez veces el valor diario de la Unidad de Medida y Actualización, a quien se estacione en lugar exclusivo para personas con discapacidad, sin acreditar fehacientemente que el conductor o alguno de sus ocupantes se encuentra en ese supuesto, sanción que no podrá ser condonada ni reducida.
 II. Suspensión de licencia:
 (REFORMADO, P.O. 2 DE NOVIEMBRE DE 2010)
 a).- Por orden de autoridad competente;

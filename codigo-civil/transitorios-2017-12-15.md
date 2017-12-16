@@ -1,0 +1,3 @@
+P.O. 15 DE DICIEMBRE DE 2017.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. LXIII-364 MEDIANTE EL CUAL SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES DEL CÓDIGO CIVIL PARA EL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor al día siguiente al de su publicación en el Periódico Oficial el (sic) Estado.
