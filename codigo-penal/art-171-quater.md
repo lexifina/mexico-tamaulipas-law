@@ -20,7 +20,7 @@ VII.- Posea o porte, en el vehículo en que se encuentre o se le relacione con �
 (REFORMADA [N. DE E. ADICIONADA], P.O. 21 DE ABRIL DE 2017)
 VIII.- Al que en pandilla o dentro de una asociación delictuosa o banda aceche, vigile o realice las funciones de obtener información o comunicar a la agrupación delictiva dicha información sobre la ubicación, acciones, actividades, movimientos, operativos o en general, las labores de los elementos de seguridad pública o de las fuerzas armadas, con la finalidad de obstaculizar o impedir su actuación o bien, con la finalidad de facilitar o permitir la realización de algún delito por un tercero.
 (REFORMADA [N. DE E. ADICIONADA], P.O. 21 DE ABRIL DE 2017)
-IX.- Quien dañe, altere o impida el adecuado funcionamiento o monitoreo de cámaras de vigilancia en la vía pública o establecimientos con acceso al público instaladas para ser utilizadas por las instituciones de segundad pública.
+IX.- Quien dañe, altere o impida el adecuado funcionamiento o monitoreo de cámaras de vigilancia en la vía pública o establecimientos con acceso al público instaladas para ser utilizadas por las instituciones de seguridad pública.
 [N. DE E. VÉASE LITERALIDAD DEL DECRETO NO. LXIII-160, PUBLICADO EN EL P.O. DE 21 DE ABRIL DE 2017, PÁGINA 10.]
 (REFORMADO PRIMER PÁRRAFO, P.O. 21 DE DICIEMBRE DE 2016)
 X.- Se deroga (sic)
