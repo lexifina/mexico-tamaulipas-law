@@ -1,5 +1,5 @@
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ORDENAMIENTO Y SUS DECRETOS DE MODIFICACIONES, SE SUGIERE CONSULTAR LOS ARTÍCULOS TRANSITORIOS CORRESPONDIENTES.]
 LEY DE COORDINACIÓN FISCAL DEL ESTADO DE TAMAULIPAS
-[N. DE E. LA FE DE ERRATAS PUBLICADA EN EL P.O. DE 16 DE FEBRERO DE 2017 NO APLICA AL ARTICULADO DEL DECRETO NÚMERO LXIII-92 PUBLICADO EN EL P.O. DE 21 DE DICIEMBRE DE 2016.]
 Ley publicada en el Extraordinario del Periódico Oficial del Estado de Tamaulipas, el lunes 31 de diciembre de 2007.
 EUGENIO HERNANDEZ FLORES, Gobernador Constitucional del Estado Libre y Soberano de Tamaulipas, a sus habitantes hace saber:
 Que el Honorable Congreso del Estado, ha tenido a bien expedir el siguiente Decreto:

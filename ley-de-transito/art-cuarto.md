@@ -1,0 +1,7 @@
+(ADICIONADO, P.O. 21 DE DICIEMBRE DE 2017)
+ARTICULO CUARTO.- Para efectos de lo dispuesto en el párrafo segundo del artículo 14 BIS de esta ley, los propietarios de los vehículos deberán cumplir con la obligación señalada, en el periodo comprendido del 1 de febrero al 31 de julio de 2018.
+Para efectos de lo dispuesto en la fracción VII del artículo 49 BIS, y acorde al periodo establecido en el párrafo que antecede, una vez transcurrido éste, podrán ser sancionados por las autoridades competentes, los propietarios de los vehículos que incumplan con lo señalado en el segundo párrafo del artículo 14 BIS de la Ley de Tránsito.
+SALON DE SESIONES DEL H. CONGRESO DEL ESTADO.- Cd. Victoria, Tam., a 3 de noviembre de 1987.- Diputado Presidente, JOSE M. TERAN BERRONES.- Rúbrica.- Diputado Secretario, RAUL MANDUJANO FLORES.- Rúbrica.- Diputado Secretario, PROFR. ARTURO AGUILAR COBOS.- Rúbricas.
+Por tanto, mando se imprima, publique, circule y se le dé el debido cumplimiento.
+Dado en la residencia del Poder Ejecutivo, en Ciudad Victoria, capital del Estado de Tamaulipas, a los doce días del mes de noviembre de mil novecientos ochenta y siete.- El Gobernador Constitucional del Estado, ING. AMERICO VILLARREAL GUERRA.- El Secretario General de Gobierno, LIC. HERIBERTO BATRES GARCIA.- Rúbricas.
+N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.
