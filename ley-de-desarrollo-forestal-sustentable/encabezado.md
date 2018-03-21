@@ -1,3 +1,4 @@
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ORDENAMIENTO Y SUS DECRETOS DE MODIFICACIONES, SE SUGIERE CONSULTAR LOS ARTÍCULOS TRANSITORIOS CORRESPONDIENTES.]
 LEY DE DESARROLLO FORESTAL SUSTENTABLE PARA EL ESTADO DE TAMAULIPAS
 Ley publicada en el Anexo Número 67 del Periódico Oficial del Estado de Tamaulipas, el martes 5 de junio del 2007.
 EUGENIO HERNÁNDEZ FLORES, Gobernador Constitucional del Estado Libre y Soberano de Tamaulipas, a sus habitantes hace saber:

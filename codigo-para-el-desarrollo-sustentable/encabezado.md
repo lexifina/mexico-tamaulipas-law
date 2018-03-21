@@ -1,4 +1,5 @@
-CODIGO PARA EL DESARROLLO SUSTENTABLE DEL ESTADO DE TAMAULIPAS
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ORDENAMIENTO Y SUS DECRETOS DE MODIFICACIONES, SE SUGIERE CONSULTAR LOS ARTÍCULOS TRANSITORIOS CORRESPONDIENTES.]
+CÓDIGO PARA EL DESARROLLO SUSTENTABLE DEL ESTADO DE TAMAULIPAS
 Código publicado en el Periódico Oficial del Estado de Tamaulipas, el jueves 5 de junio de 2008.
 EUGENIO HERNÁNDEZ FLORES, Gobernador Constitucional del Estado Libre y Soberano de Tamaulipas, a sus habitantes hace saber:
 Que el Honorable Congreso del Estado, ha tenido a bien expedir el siguiente Decreto:
