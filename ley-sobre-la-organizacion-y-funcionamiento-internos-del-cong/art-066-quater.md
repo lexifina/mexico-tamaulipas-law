@@ -1,8 +1,10 @@
 (ADICIONADO, P.O. 30 DE MAYO DE 2017)
 ARTICULO 66 QUATER.
 1. El Centro de Estudios de las Finanzas Públicas es el órgano técnico del Congreso del Estado al cual le corresponde:
-a) Analizar los aspectos relacionados con las finanzas públicas, tanto del informe anual que rinda el Ejecutivo al Congreso sobre el estado que guarda la administración pública estatal, el Plan Estatal de Desarrollo, así como de los informes que por escrito deban dar cuenta los titulares de sus dependencias con relación a sus respectivos ramos, dando cuenta al Pleno de los trabajos realizados al efecto;
-b) Analizar el Informe Anual de Ejecución del Plan Municipal de Desarrollo de los Ayuntamientos del Estado, y dar cuenta al Pleno de los trabajos realizados al respecto;
+(REFORMADO, P.O. 24 DE ABRIL DE 2018)
+a) Analizar los aspectos relacionados con las finanzas públicas, tanto del informe anual que rinda el Ejecutivo al Congreso sobre el estado que guarda la administración pública estatal, de los aspectos relacionados con las finanzas públicas del Plan Estatal de Desarrollo, de los informes que por escrito deban dar cuenta los titulares de sus dependencias con relación a sus respectivos ramos, dando cuenta a las Comisiones competentes de los trabajos realizados al efecto, así como de las iniciativas de Ley de Ingresos del Estado, de reformas legales relativas a las fuentes de ingresos para el siguiente ejercicio fiscal, Presupuesto de Egresos del Estado y de Leyes de Ingresos de los Municipios;
+(REFORMADO, P.O. 24 DE ABRIL DE 2018)
+b) Analizar los aspectos relacionados con las finanzas públicas del Informe Anual de Ejecución del Plan Municipal de Desarrollo de los Ayuntamientos del Estado, y dar cuenta a las comisiones competentes de los trabajos realizados al respecto;
 c) Elaborar análisis, proyecciones y cálculos que le sean requeridos por la Comisión de Finanzas, Planeación, Presupuesto y Deuda Pública sobre el tema de finanzas públicas;
 d) Proporcionar a las comisiones del Congreso la información que requieran, para el ejercicio de sus funciones constitucionales en materia de finanzas públicas; esa información se presentará previo su procesamiento adecuado;
 e) Recabar y organizar la información de carácter económico, procedente de organismos públicos y privados, para hacer accesible la misma al Congreso y a sus diversas comisiones y grupos parlamentarios;
@@ -10,12 +12,16 @@ f) Asesorar a las comisiones del Congreso cuando éstas requieran información e
 g) Solicitar a la Secretaría de Finanzas la información que estime necesaria, a través y con autorización expresa del pleno de la Comisión de Finanzas, Planeación, Presupuesto y Deuda Pública del Congreso; y
 h) Realizar estudios sobre los temas directamente relacionados con las finanzas públicas, abarcando los que por su naturaleza tengan relación con éstos, a petición de las comisiones del Congreso o por iniciativa propia.
 2. Para el ejercicio de las atribuciones establecidas en el párrafo anterior, el Centro contará con la estructura administrativa que se prevea en el Reglamento, la cual podrá ampliarse conforme a las necesidades propias de su funcionamiento. El personal del instituto deberá contar con un perfil profesional relacionado con los ámbitos académicos y de la investigación.
-3. El Coordinador del Centro será nombrado, a propuesta de la Junta de Coordinación Política, y sólo podrá ser removido por el Pleno.
-4. Para ser nombrado Coordinador del Centro de Estudios sobre las Finanzas Públicas se requiere:
-a) Ser mexicano;
+(REFORMADO, P.O. 24 DE ABRIL DE 2018)
+3. La persona titular de la Coordinación del Centro será nombrada, a propuesta de la Junta de Coordinación Política, y sólo podrá ser removida por el Pleno.
+(REFORMADO, P.O. 24 DE ABRIL DE 2018)
+4. Para ser titular de la Coordinación del Centro de Estudios sobre las Finanzas Públicas se requiere:
+(REFORMADO, P.O. 24 DE ABRIL DE 2018)
+a) Ser de nacionalidad mexicana;
 b) Estar en pleno goce de sus derechos civiles;
 c) No haber sido condenado por delito internacional que ameritara pena privativa de la libertad;
-d) Contar con título profesional preferentemente de Licenciado en Economía, en Administración Pública o su equivalente legalmente;
+(REFORMADO, P.O. 24 DE ABRIL DE 2018)
+d) Contar con título profesional preferentemente de Licenciado en Economía, en Administración Pública o su equivalente legalmente expedido;
 e) Acreditar haber cursado Maestría en alguna de las materias relacionadas preferentemente con la economía o la investigación; y
 f) Acreditar mínimo de tres años en el ejercicio de su profesión.
 5. El Centro contará con un Comité formado por Diputados cuyo objeto es formular directrices y pautas que contribuyan a orientar el trabajo del mismo centro. El Comité tomará sus decisiones por consenso y, en caso de no lograrse éste, operará el sistema de voto ponderado.
