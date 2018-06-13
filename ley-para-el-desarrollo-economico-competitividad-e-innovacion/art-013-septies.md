@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 12 DE JUNIO DE 2018)
+ARTICULO 13 SEPTIES. Atendiendo a lo dispuesto en el presente ordenamiento y en el marco de la competitividad regional para atraer inversiones de alto impacto económico y social, así como para promover la continua expansión de inversiones ya establecidas en el Estado, el Comité de Incentivos, podrá proponer al Ejecutivo la autorización de excepciones en los estímulos fiscales, pagos de derechos y plazos contemplados en esta Ley y en las disposiciones reglamentarias.

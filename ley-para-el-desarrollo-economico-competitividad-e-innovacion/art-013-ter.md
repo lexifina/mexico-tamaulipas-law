@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 12 DE JUNIO DE 2018)
+ARTICULO 13 TER. Todos los cargos de los integrantes del Comité se entienden otorgados no a las personas sino al cargo de la dependencia que representen; consecuentemente por cada Titular se designará un suplente de la misma dependencia quien deberá sustituir al Titular en caso de ausencia, ejerciendo las mismas facultades de éstos.
+A propuesta de cualquiera de sus miembros, en forma temporal y con derecho a voz pero sin voto, el Comité podrá invitar a participar en sus reuniones a representantes de otras dependencias de la administración pública federal, estatal o municipal, así como de los sectores educativo, social y privado y miembros de la sociedad civil que por sus destacadas trayectorias pudieran realizar aportaciones a las sesiones del Comité.
+El quórum legal para sesionar el Comité será con la asistencia por mayoría de los miembros integrantes con derecho a voto, o en su caso sus respectivos suplentes. De igual manera, las determinaciones que se emitan en dicha sesión deberán ser aprobadas por la mayoría de los presentes con derecho a voto.
+La participación de los miembros del Comité será honorifica.

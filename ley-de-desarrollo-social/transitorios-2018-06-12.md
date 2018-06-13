@@ -1,0 +1,3 @@
+P.O. 12 DE JUNIO DE 2018.
+[N. DE E. TRANSITORIO DEL "DECRETO LXIII-434 MEDIANTE EL CUAL SE REFORMA EL ARTICULO 8°, FRACCIONES I Y V, DE LA LEY DE DESARROLLO SOCIAL PARA EL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
