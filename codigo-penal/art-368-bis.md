@@ -14,4 +14,8 @@ d) Adoptantes o adoptados; y
 e) El incapaz sobre el que se es tutor o curador.
 (REFORMADO, P.O. 23 DE JUNIO DE 2016)
 A quien cometa el delito de violencia familiar se le impondrá de seis meses a cuatro años de prisión y perderá el derecho de pensión alimenticia. Asimismo, se le sujetará a tratamiento psicológico especializado y estará obligado al pago de la reparación del daño de las víctimas.
+(ADICIONADO, P.O. 12 DE JULIO DE 2018)
+Cuando se cometa en perjuicio de un menor de doce años, se impondrá al responsable la pena de uno a cinco años de prisión.
+(ADICIONADO, P.O. 12 DE JULIO DE 2018)
+Si el responsable fuere ascendiente o tutor del ofendido, será condenado a la pérdida, limitación o suspensión de la patria potestad, según las circunstancias del caso, a juicio del juez.
 Este delito se perseguirá, a petición de parte ofendida.
