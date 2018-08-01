@@ -1,0 +1,3 @@
+P.O. 31 DE JULIO DE 2018.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. LXIII-443 MEDIANTE EL CUAL SE REFORMAN DIVERSAS DISPOSICIONES DE LA LEY PARA LA ENTREGA-RECEPCIÓN DE LOS RECURSOS ASIGNADOS A LOS PODERES, ÓRGANOS Y AYUNTAMIENTOS DEL ESTADO DE TAMAULIPAS Y LA LEY SOBRE LA ORGANIZACIÓN Y FUNCIONAMIENTO INTERNOS DEL CONGRESO DEL ESTADO LIBRE Y SOBERANO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado, con excepción de las reformas a la Ley sobre la Organización y Funcionamiento Internos del Congreso del Estado Libre y Soberano de Tamaulipas que en éste se establecen, cuya vigencia surtirá efectos a partir de su expedición, con base en el artículo 3, párrafo 3 de la citada Ley.
