@@ -1,0 +1,5 @@
+P.O. 30 DE OCTUBRE DE 2018.
+[N. DE E. TRANSITORIOS DEL "DECRETO No. LXIII-519 MEDIANTE EL CUAL SE REFORMAN, ADICIONAN Y DEROGAN DIVERSAS DISPOSICIONES DE LA LEY ORGÁNICA DEL TRIBUNAL DE JUSTICIA ADMINISTRATIVA DEL ESTADO DE TAMAULIPAS, A LA LEY DEL PROCEDIMIENTO CONTENCIOSO ADMINISTRATIVO DEL ESTADO DE TAMAULIPAS Y A LA LEY DE RESPONSABILIDADES ADMINISTRATIVAS DEL ESTADO DE TAMAULIPAS".]
+ARTÍCULO PRIMERO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+ARTÍCULO SEGUNDO. En relación a lo señalado en el último párrafo del artículo 22 de la Ley del Procedimiento Contencioso Administrativo del Estado de Tamaulipas del presente Decreto, los juicios que se hayan iniciado en el Tribunal de Justicia Administrativa del Estado de Tamaulipas con anterioridad a la entrada en vigor del presente Decreto, continuarán desarrollándose conforme al procedimiento que se venía aplicando hasta la entrada en vigor del mismo.
+ARTÍCULO TERCERO. Se derogan todas las disposiciones que se opongan al presente Decreto.

@@ -1,7 +1,4 @@
-(ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, P.O. 23 DE JUNIO DE 2016)
-CAPÍTULO XI
-VIOLENCIA EN LOS ESPECTÁCULOS DEPORTIVOS
-(ADICIONADO, P.O. 23 DE JUNIO DE 2016)
-ARTÍCULO 368 QUINQUIES.- Comete el delito de violencia en espectáculos deportivos, quién en un evento deportivo, encontrándose en el interior de un estadio o recinto utilizado para ese fin o en los espacios de estacionamiento o calles circundantes inmediatas al mismo, cometa por sí o incite a otros a cometer actos que produzcan lesiones a terceros o daños a bienes muebles o inmuebles.
-(REFORMADO, P.O. 21 DE DICIEMBRE DE 2016)
-Se castigará con prisión de uno a cuatro años y multa de diez a ochenta veces el valor diario de la Unidad de Medida y Actualización, sin perjuicio de las sanciones a que se haya hecho acreedor por la comisión de diverso delito.
+(REFORMADO PRIMER PÁRRAFO, P.O. 24 DE SEPTIEMBRE DE 2013)
+ARTÍCULO 368 QUINQUIES.- En todos los casos previstos en los dos artículos precedentes, el Ministerio Público o el ofendido solicitará al Juez una orden de protección en un plazo de 24 horas después de la solicitud, previendo las medidas que considere necesarias para hacer cesar cualquier conducta que pudiere resultar ofensiva para la víctima, de conformidad con lo establecido en (sic) Ley para Prevenir, Atender, Sancionar y Erradicar la Violencia contra las Mujeres.
+(ADICIONADO, P.O. 5 DE JUNIO DE 1999)
+La autoridad administrativa vigilará el cumplimiento de estas medidas. En todos los casos el Ministerio Público deberá solicitar las medidas precautorias que considere pertinentes.

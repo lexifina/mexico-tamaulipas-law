@@ -1,8 +1,9 @@
 (REFORMADA SU DENOMINACIÓN, P.O. 24 DE JUNIO DE 2008)
 CAPITULO X
 VIOLENCIA FAMILIAR
-(REFORMADO, P.O. 26 DE MAYO DE 2015)
-ARTICULO 368 BIS.- Comete el delito de violencia familiar, el integrante de una familia que ejerza maltrato físico, psico-emocional o económico en contra de cualquier otro miembro de la familia, independientemente de que produzca o no lesiones en la víctima.
+(REFORMADO PRIMER PÁRRAFO, P.O. 30 DE OCTUBRE DE 2018)
+ARTICULO 368 BIS.- Comete el delito de violencia familiar quien por acción u omisión ejerza cualquier tipo de maltrato físico, psicológico, patrimonial, económico o sexual contra cualquier otro miembro de la familia con el que se encuentre o haya estado unido por vínculo matrimonial, de parentesco por consanguinidad, afinidad o civil, concubinato, o que mantenga o haya mantenido una relación de hecho dentro o fuera del domicilio familiar.
+(REFORMADO [N. DE E. CON SUS INCISOS], P.O. 26 DE MAYO DE 2015)
 Para los efectos de este capítulo, se considera miembro de familia:
 a) El cónyuge o concubino;
 b) Los parientes consanguíneos en línea recta ascendente o descendente sin limitación de grado;
@@ -18,4 +19,3 @@ A quien cometa el delito de violencia familiar se le impondrá de seis meses a c
 Cuando se cometa en perjuicio de un menor de doce años, se impondrá al responsable la pena de uno a cinco años de prisión.
 (ADICIONADO, P.O. 12 DE JULIO DE 2018)
 Si el responsable fuere ascendiente o tutor del ofendido, será condenado a la pérdida, limitación o suspensión de la patria potestad, según las circunstancias del caso, a juicio del juez.
-Este delito se perseguirá, a petición de parte ofendida.
