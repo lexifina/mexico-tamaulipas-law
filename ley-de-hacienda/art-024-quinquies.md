@@ -1,0 +1,5 @@
+(ADICIONADA CON LOS ARTÍCULOS QUE LA INTEGRAN, P.O. 22 DE NOVIEMBRE DE 2018)
+SECCIÓN TERCERA
+IMPUESTO SOBRE LA PARTICIPACIÓN EN JUEGOS CON CRUCE DE APUESTAS
+(ADICIONADO, P.O. 22 DE NOVIEMBRE DE 2018)
+Artículo 24 Quinquies.- Son sujetos del impuesto por la participación en juegos con cruce de apuestas las personas físicas que en el Estado fijen apuestas para participar en juegos con cruce o captación de apuestas incluidos sorteos para los cuales se requiera permiso conforme a lo dispuesto por la Ley Federal de Juegos y Sorteos y su Reglamento, se entienden todos aquellos independientemente del nombre con el que se les designe en los que el premio se obtenga por la destreza del participante en el uso de máquinas que en su funcionamiento utilicen imágenes visuales electrónicas y con independencia a que en alguna etapa de su desarrollo intervenga el azar, incluidos aquellos en que el participante deba estar presente en el desarrollo de la actividad o como espectador así como en los casos en que el operador se encuentre fuera de la entidad, en los casos de juegos con cruce o captación de apuestas remotas, y para eventos o competencias deportivas.
