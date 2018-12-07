@@ -1,0 +1,1 @@
+ARTÍCULO DÉCIMO. Para la adecuada implementación de la Ley para la Igualdad de Género en Tamaulipas que se expide mediante el presente Decreto, deberán considerarse las previsiones de recursos humanos, materiales y financieros a que haya lugar.

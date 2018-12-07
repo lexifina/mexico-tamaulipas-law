@@ -1,0 +1,1 @@
+ARTÍCULO OCTAVO. El Instituto de las Mujeres en Tamaulipas deberá elaborar los lineamientos establecidos en la Ley para la Igualdad de Género en Tamaulipas, en un plazo no mayor a 180 días posteriores a la publicación del presente Decreto en el Periódico Oficial del Estado.

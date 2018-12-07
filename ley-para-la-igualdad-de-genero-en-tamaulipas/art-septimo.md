@@ -1,0 +1,1 @@
+ARTÍCULO SÉPTIMO. El Instituto de las Mujeres en Tamaulipas deberá elaborar y presentar la propuesta del Estatuto Orgánico, establecido en la presente Ley, en un plazo no mayor a 180 días posteriores a la publicación del presente Decreto en el Periódico Oficial del Estado.

@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO. Se abroga la Ley para la Igualdad de Género en Tamaulipas, publicada en el Periódico Oficial del Estado, No. 28, del 8 de marzo de 2005, así como todas las reformas que haya sufrido durante su vigencia.

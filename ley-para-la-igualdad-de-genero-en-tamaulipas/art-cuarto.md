@@ -1,0 +1,1 @@
+ARTÍCULO CUARTO. Los recursos humanos, materiales y presupuestales con que actualmente cuenta el organismo público descentralizado denominado Instituto de la Mujer Tamaulipeca, pasarán a formar parte del Instituto de las Mujeres en Tamaulipas.

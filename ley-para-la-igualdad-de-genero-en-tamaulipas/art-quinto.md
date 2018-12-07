@@ -1,0 +1,1 @@
+ARTÍCULO QUINTO. En un plazo no mayor a 180 días posteriores a la publicación del presente Decreto, las autoridades facultadas deberán expedir el Reglamento de la Ley para la Igualdad de Género en Tamaulipas y publicarlo en el Periódico Oficial del Estado.

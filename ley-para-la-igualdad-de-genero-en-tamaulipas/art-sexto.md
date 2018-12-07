@@ -1,0 +1,1 @@
+ARTÍCULO SEXTO. El Instituto de las Mujeres en Tamaulipas deberá presentar la propuesta del Programa Estatal para la Igualdad Sustantiva entre Mujeres y Hombres al Sistema Estatal para la Igualdad entre Mujeres y Hombres.

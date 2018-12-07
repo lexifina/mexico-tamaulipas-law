@@ -1,0 +1,1 @@
+ARTÍCULO NOVENO. En un plazo no mayor a 180 días posteriores a la publicación del presente Decreto, las autoridades facultadas deberán expedir el Programa Estatal para la Igualdad Sustantiva entre Mujeres y Hombres y publicarlo en el Periódico Oficial del Estado.
