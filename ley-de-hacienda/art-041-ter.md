@@ -1,2 +1,1 @@
-(ADICIONADO, P.O. 20 DE DICIEMBRE DE 2011)
-Artículo 41 Ter. El Gobierno del Estado podrá celebrar convenios con las autoridades federales competentes para expedir los certificados de aeronavegabilidad o de inspección de seguridad a embarcaciones y los certificados de matrícula para las aeronaves, a fin de facilitar la comprobación del pago del presente impuesto por parte de las personas tenedoras o usuarias de aeronaves o embarcaciones gravadas.
+Artículo 41 Ter. (DEROGADO, P.O. 25 DE DICIEMBRE DE 2018)
