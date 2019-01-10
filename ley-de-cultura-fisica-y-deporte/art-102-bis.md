@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 9 DE ENERO DE 2019)
+ARTÍCULO 102 BIS.
+Para los efectos señalados en este Capítulo, se instituye el padrón de personas sancionadas con suspensión del derecho de asistir a eventos deportivos, en el cual quedarán inscritas las personas a quienes se les imponga como sanción la prohibición o suspensión de asistencia a eventos deportivos masivos o con fines de espectáculo. Este padrón formará parte de las bases de datos del Instituto, la información en él contenida será confidencial y su acceso estará disponible únicamente para las autoridades de la materia, quienes no podrán usarla para otro fin distinto a hacer efectivas las sanciones de prohibición de asistir a eventos deportivos masivos o con fines de espectáculo.
+La inscripción en este padrón será considerada información confidencial y únicamente tendrá vigencia por el tiempo de la sanción, transcurrido el cual, deberán ser eliminados totalmente los datos del sancionado.

@@ -1,0 +1,7 @@
+(ADICIONADO, P.O. 9 DE ENERO DE 2019)
+ARTÍCULO 42 BIS.
+La Participación de los deportistas en las competiciones, se sujetará a:
+I. Asistir a las convocatorias de las preselecciones o selecciones deportivas estatales y/o nacionales para la participación en competiciones de carácter regional, nacional e internacional, o para la preparación de las mismas;
+II. Si fuesen estudiantes, el Instituto gestionará ante la Secretaría de Educación de Tamaulipas el otorgamiento de permisos escolares durante el tiempo requerido para la participación en competiciones o la preparación de las mismas, verificando la no afectación en el rendimiento académico de los mismos, en los términos que reglamentariamente se establezcan;
+III. En caso de ser sujetos de una relación laboral, el Instituto tramitará ante las instancias correspondientes las facilidades para que se conserve tal carácter durante el tiempo requerido para la participación en competiciones o la preparación de las mismas, si bien se suspenderá el ejercicio de las facultades de dirección y control de la actividad laboral y las obligaciones o responsabilidades relacionadas con dicha facultad, en los términos que reglamentariamente se establezcan; y
+IV. Los Clubes y Ligas Deportivas brindarán las facilidades necesarias para que los deportistas, entrenadores, técnicos o jueces que sean parte de sus plantillas, participen en las competiciones oficiales o en la preparación de las mismas.
