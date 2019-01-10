@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO. Una vez que haya entrado en vigor esta Ley, las casas de empeño ya instaladas y que se encuentren funcionando en el Estado con anterioridad, deberán cumplir dentro de los 90 días hábiles siguientes con las disposiciones de la misma.

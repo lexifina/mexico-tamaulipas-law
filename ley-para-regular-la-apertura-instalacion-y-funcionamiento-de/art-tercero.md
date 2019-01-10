@@ -1,0 +1,1 @@
+ARTÍCULO TERCERO. Cuando en esta ley se haga referencia a la Fiscalía, se entenderá hecha a la Procuraduría, hasta en tanto entre en funciones la misma, lo anterior a efecto de dar atención a los asuntos que le sean encomendados. En lo relativo a la Cédula Estatal de Identidad, la misma será obligatoria a partir de la operación del programa de expedición de dichas cédulas.
