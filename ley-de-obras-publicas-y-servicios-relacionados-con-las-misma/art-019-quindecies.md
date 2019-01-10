@@ -1,0 +1,10 @@
+(ADICIONADO, P.O. 9 DE ENERO DE 2019)
+ARTÍCULO 19 QUINDECIES. El Constructor tiene las siguientes obligaciones:
+a) Ejecutar la obra conforme al proyecto ejecutivo, registrado en la manifestación de construcción o licencia de construcción especial ante la autoridad competente;
+b) Cuando existan diferencias físicas del terreno, condiciones de la colindancia o propiedades distintas del suelo donde se construirá la cimentación con lo indicado en el proyecto registrado, deberá comunicar al Director Responsable de Obra y/o Corresponsable para que determine cuál será el procedimiento a realizar;
+c) Atender las instrucciones del Director Responsable de Obra y/o los Corresponsables, en cuanto a las condiciones de seguridad y salud en la obra a efecto de prevenir riesgos laborales cumpliendo con lo establecido en la NOM-031-STPS vigente;
+d) Solicitar por escrito los cambios que considere pertinente al proyecto ejecutivo de obra al Director Responsable de Obra y/o Corresponsable, según sea el caso, quienes autorizarán o no dichos cambios, lo cual deberá ser asentado en la bitácora, así como los motivos para ello;
+e) Contratar laboratorios certificados y/o acreditados por entidades autorizadas para realizar las pruebas que se establezcan en las Normas para garantizar la calidad de los materiales;
+f) Colocar un letrero en la obra en un lugar visible y legible desde la vía pública, con el nombre del Director Responsable de Obra, número de registro y en su caso del o de los Corresponsables con su número de registro, el nombre del Constructor y su razón social además del número de registro de manifestación de construcción o de licencia de construcción especial, la vigencia, tipo, uso de la obra y ubicación de la misma; y
+g) Aplicar, en su caso, el Programa Interno de Protección Civil para obra en construcción, remodelación y demolición;
+El constructor será el responsable, en el caso de que existan daños en la obra o a terceros generados por el incumplimiento de los incisos anteriores.
