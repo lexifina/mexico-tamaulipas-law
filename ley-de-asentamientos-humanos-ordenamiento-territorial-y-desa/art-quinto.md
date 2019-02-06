@@ -1,0 +1,1 @@
+ARTÍCULO QUINTO. La Secretaría en un plazo no mayor de 12 meses, a partir de la vigencia de la presente Ley, deberá expedir el Reglamento de Transferencia de Potencialidad y crear el Fideicomiso respectivo.

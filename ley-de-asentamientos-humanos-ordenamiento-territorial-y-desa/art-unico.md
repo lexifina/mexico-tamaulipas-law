@@ -1,0 +1,6 @@
+ARTÍCULO ÚNICO. Se expide la Ley de Asentamientos Humanos, Ordenamiento Territorial y Desarrollo Urbano para el Estado de Tamaulipas.
+LEY DE ASENTAMIENTOS HUMANOS, ORDENAMIENTO TERRITORIAL Y DESARROLLO URBANO DEL ESTADO DE TAMAULIPAS
+TÍTULO PRIMERO
+DISPOSICIONES GENERALES
+CAPÍTULO I
+Objeto de la Ley

@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO. Se abroga la Ley para el Desarrollo Urbano del Estado de Tamaulipas, expedida mediante el Decreto No. LIX-520, publicado en el Periódico Oficial del Estado No. 49 el día 25 de abril de 2006, así como todas las reformas que haya sufrido durante su vigencia.

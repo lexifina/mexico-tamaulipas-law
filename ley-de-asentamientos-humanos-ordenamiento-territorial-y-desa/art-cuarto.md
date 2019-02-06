@@ -1,0 +1,1 @@
+ARTÍCULO CUARTO. Continúan vigentes los decretos, planes y programas que integran el Sistema Estatal, reglamentos y autorizaciones expedidas o aprobadas por el Ejecutivo del Estado, los Ayuntamientos o las autoridades competentes que actuaron conforme a la Ley que se abroga, en todo lo que no se oponga a la presente.
