@@ -1,0 +1,3 @@
+P.O. 6 DE MARZO DE 2019.
+[N. DE E. TRANSITORIO DEL "DECRETO LXIII-775 MEDIANTE EL CUAL SE REFORMAN LOS INCISOS D) Y E), Y SE ADICIONA UN INCISO F) A LA FRACCIÓN I, DEL ARTÍCULO 190 BIS, DE LA LEY DE SALUD PARA EL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
