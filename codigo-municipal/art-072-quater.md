@@ -1,6 +1,7 @@
 (ADICIONADO, P.O. 25 DE DICIEMBRE DE 2001)
 ARTICULO 72 QUATER.- Son facultades y obligaciones del Contralor Municipal:
-I.- Vigilar el cumplimiento de la Ley de Responsabilidades de los Servidores Públicos del Estado de Tamaulipas, así como conocer e investigar los actos, omisiones o conductas de los servidores públicos municipales, que puedan implicar responsabilidad administrativa.
+(REFORMADA, P.O. 20 DE AGOSTO DE 2019)
+I.- Vigilar el cumplimiento de la Ley de Responsabilidades Administrativas del Estado de Tamaulipas, así como conocer e investigar los actos, omisiones o conductas de los servidores públicos municipales, que puedan implicar responsabilidad administrativa.
 II.- Fiscalizar la distribución y aplicación de los recursos ejercidos por la administración municipal, pudiendo para este fin, realizar auditorías, inspecciones y evaluaciones a los departamentos que integren dicha administración.
 III.- Supervisar y vigilar el funcionamiento de los sistemas y procedimientos de planeación, control y evaluación de la administración municipal, y requerir discrecionalmente de los departamentos, la instrumentación de normas adicionales para el ejercicio de sus atribuciones que aseguren el control.
 IV.- Atender y dar seguimiento a las denuncias y quejas que se presenten con motivo de irregularidades en Acuerdos, Convenios o Contratos que celebren los particulares con los departamentos de la administración municipal, y en la aplicación de recursos destinados a obras y servicios del Municipio.

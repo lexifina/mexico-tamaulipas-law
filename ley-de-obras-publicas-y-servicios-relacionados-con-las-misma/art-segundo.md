@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO. Se abroga la Ley de Obras Públicas para el Estado de Tamaulipas publicada en el Periódico Oficial del Estado el 3 de noviembre de 1984, y sus reformas publicadas en el propio Periódico Oficial del Estado de 16 de febrero de 1994 y de 11 de octubre de 2001, al tiempo que se derogan todas las demás disposiciones que se opongan a la presente ley.

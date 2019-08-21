@@ -1,5 +1,4 @@
 LEY DE ASOCIACIONES PÚBLICO PRIVADAS PARA EL ESTADO DE TAMAULIPAS
-[N. DE E. LA FE DE ERRATAS PUBLICADA EN EL P. O. EL 5 DE DICIEMBRE DE 2017 NO APLICA AL ARTICULADO DEL DECRETO LXIII-312 PUBLICADO EN EL P.O. DE 1 DE DICIEMBRE DE 2017.]
 (F. DE E., P.O. DE 5 DE DICIEMBRE DE 2017)
 Ley publicada en el Anexo al Extraordinario Número 13 del Periódico Oficial del Estado de Tamaulipas, el viernes 1 de diciembre de 2017.
 FRANCISCO JAVIER GARCÍA CABEZA DE VACA, Gobernador Constitucional del Estado Libre y Soberano de Tamaulipas, a sus habitantes hace saber:

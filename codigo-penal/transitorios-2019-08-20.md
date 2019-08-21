@@ -1,0 +1,3 @@
+P.O. 20 DE AGOSTO DE 2019.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. LXIII-793 MEDIANTE EL CUAL SE REFORMA LA FRACCIÓN II Y ADICIONA UNA FRACCIÓN III, AL ARTÍCULO 318 DEL CÓDIGO PENAL PARA EL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.

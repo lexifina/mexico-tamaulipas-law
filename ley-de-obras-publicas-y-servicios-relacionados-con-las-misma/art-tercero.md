@@ -1,0 +1,1 @@
+ARTÍCULO TERCERO. La Comisión constituida con fundamento en el Artículo Tercero Transitorio del Decreto mediante el cual se reforma la Ley de Obras Públicas para el Estado de Tamaulipas, publicado en el Periódico Oficial del Estado el día 16 de febrero de 1994, deberá sujetarse a lo establecido en este ordenamiento.
