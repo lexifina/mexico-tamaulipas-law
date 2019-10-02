@@ -1,0 +1,3 @@
+P.O. 1 DE OCTUBRE DE 2019.
+[N. DE E. TRANSITORIO DEL "DECRETO LXIII-1018 MEDIANTE EL CUAL SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES DE LA LEY DE TRANSPORTE DEL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.

@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 1 DE OCTUBRE DE 2019)
+ARTÍCULO 35 Septendecies.- Las Empresas de Redes de Transporte o sus empresas relacionadas que recaben datos personales a través de las Plataformas tecnológicas, deberán publicar su aviso de privacidad detallando la información que recaben y el uso y tratamiento que se da a la información recabada. De igual forma, se otorgará al usuario la opción de excluir su correo de los mensajes promocionales que envíen las Empresas de Redes de Transporte o empresas relacionadas.

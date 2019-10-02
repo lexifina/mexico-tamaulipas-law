@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 1 DE OCTUBRE DE 2019)
+ARTÍCULO 35 Quinquies.- El registro de la Empresa de Redes de Transporte será personalísimo, intransferible, inalienable e inembargable y no generará derechos reales de ninguna clase a favor de la Empresa de Redes de Transporte, salvo los que sean consecuencia inmediata de su naturaleza conforme a la presente Ley. Los actos mediante los cuales pretendan gravarse o enajenarse los registros de las Empresas de Redes de Transporte serán nulos y no producirán efecto legal alguno.

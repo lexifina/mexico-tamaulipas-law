@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 1 DE OCTUBRE DE 2019)
+ARTÍCULO 35 Octies.- Para proteger la seguridad de los usuarios del Servicio de Transporte Ejecutivo, las Plataformas permitirán al usuario conocer la identidad del conductor privado y datos del vehículo previo a abordar el mismo. El conductor privado también tendrá acceso al nombre de la persona que abordará el vehículo. Además, la Plataforma dará a los usuarios la opción de planificar las rutas automáticamente y dará a conocer en tiempo real la disponibilidad del servicio y estimados de tiempo para los trayectos.
