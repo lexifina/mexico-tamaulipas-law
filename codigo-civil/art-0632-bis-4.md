@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 17 DE OCTUBRE DE 2019)
+ART. 632 Bis 4.- Presentada la solicitud de Declaración Especial de Ausencia junto con las documentales señaladas en el artículo anterior, el Juez admitirá a trámite el procedimiento y dictará las medidas provisionales que estime pertinentes para salvaguardar los derechos de la persona ausente y de sus familiares, especialmente aquellos que sean menores de edad.

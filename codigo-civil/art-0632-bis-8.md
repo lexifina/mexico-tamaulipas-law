@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 17 DE OCTUBRE DE 2019)
+ART. 632 Bis 8.- En todo lo no previsto en este Capítulo, se aplicarán supletoriamente las reglas de la Ley General en Materia de Desaparición Forzada de Personas, Desaparición Cometida por Particulares y del Sistema Nacional de Búsqueda de Personas, del procedimiento de la Declaración de Ausencia previsto en el Capítulo II del Título Octavo de este Código, así como las disposiciones de la Ley General de Víctimas y la Ley de Atención a Víctimas para el Estado de Tamaulipas.

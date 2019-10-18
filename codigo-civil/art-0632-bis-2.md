@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 17 DE OCTUBRE DE 2019)
+ART. 632 Bis 2.- El procedimiento para emitir la Declaración Especial de Ausencia será estrictamente voluntario y se regirá bajo los principios de inmediatez, celeridad y gratuidad.
+Los gastos derivados de este procedimiento, incluyendo publicación de edictos, no causarán contribución alguna en el caso de publicación en medios oficiales. La Comisión Estatal de Víctimas podrá otorgar las medidas de asistencia necesarias a los familiares durante el procedimiento, incluido el gasto que se genere con motivo del mismo, de conformidad con lo dispuesto en la Ley General de Víctimas, la Ley de Atención a Víctimas para el Estado de Tamaulipas y demás normatividad aplicable.
