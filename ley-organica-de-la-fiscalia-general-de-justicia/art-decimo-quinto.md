@@ -1,0 +1,1 @@
+ARTÍCULO DÉCIMO QUINTO. El Poder Ejecutivo del Estado y el Congreso del Estado Libre y Soberano de Tamaulipas respectivamente, deberán asignar todos los recursos financieros y administrativos necesarios a fin de garantizar la suficiencia presupuestal del Plan de Transición de la Fiscalía General.

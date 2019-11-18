@@ -1,0 +1,1 @@
+ARTÍCULO DÉCIMO SÉPTIMO. Los expedientes ministeriales que se encuentren en trámite a la entrada en vigor del presente decreto serán resueltos en las unidades en las que estén radicados, conforme a las normas vigentes al momento de su inicio; lo anterior, sin perjuicio de que se radiquen a nuevas unidades de investigación.

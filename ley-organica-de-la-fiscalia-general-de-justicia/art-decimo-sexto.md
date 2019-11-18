@@ -1,0 +1,2 @@
+ARTÍCULO DÉCIMO SEXTO. Todas las menciones a la Procuraduría General de Justicia del Estado de Tamaulipas, en la legislación y normatividad, se entenderán referidas a la Fiscalía General, siempre y cuando no se contrapongan a su naturaleza, al decreto de reforma constitucional que le dio origen y a la presente Ley.
+Asimismo, todos los convenios y actos jurídicos celebrados por la Procuraduría General de Justicia o por el Gobierno del Estado en beneficio de la Procuraduría, se entenderán como vigentes y suscritos por la Fiscalía General, en sus términos.

@@ -1,0 +1,1 @@
+ARTÍCULO DÉCIMO OCTAVO. En tanto no se emita la normatividad indispensable para el funcionamiento de la Fiscalía General, se seguirán aplicando las disposiciones legales y administrativas vigentes de la Procuraduría General de Justicia del Estado al momento de la entrada en vigor de la presente Ley, en lo que no se opongan a la misma.

@@ -1,0 +1,1 @@
+ARTÍCULO TERCERO. Una vez entrada en vigor la presente Ley, se abroga la Ley Orgánica de la Procuraduría General de Justicia del Estado de Tamaulipas, expedida mediante Decreto LX-117 del 1° de septiembre de 2010, publicado en el Periódico Oficial del Estado número 105, de fecha 2 de septiembre del mismo año.

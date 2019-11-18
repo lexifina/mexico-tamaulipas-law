@@ -1,0 +1,1 @@
+ARTÍCULO NOVENO. A la entrada en vigor del presente Decreto, la persona titular de la Fiscalía General podrá designar a los Vicefiscales, Fiscales Especializados y demás servidores públicos que establece el presente Decreto.

@@ -1,0 +1,1 @@
+ARTÍCULO SÉPTIMO. A la entrada en vigor de este Decreto, el titular del Poder Ejecutivo del Estado deberá constituir el fondo para la terminación de las relaciones con respecto al personal que no cumpla con los requisitos, capacitación y evaluaciones. El fondo de referencia estará bajo la administración y ejercicio de la Unidad Técnica.

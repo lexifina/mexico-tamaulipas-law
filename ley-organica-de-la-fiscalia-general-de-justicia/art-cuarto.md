@@ -1,0 +1,1 @@
+ARTÍCULO CUARTO. El Congreso del Estado Libre y Soberano de Tamaulipas, en un plazo no mayor a treinta días posteriores a la entrada en vigor del presente Decreto, deberá emitir la convocatoria pública para la elección del Titular del Órgano Interno de Control de la Fiscalía General de Justicia del Estado de Tamaulipas.

@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO. Se instruye a la Procuraduría General de Justicia, Contraloría Gubernamental, Secretaría de Finanzas y a la Secretaría de Administración, realizar las adecuaciones presupuestales, financieras y de recursos humanos, a efecto de dar cumplimiento a lo establecido en el presente decreto.
