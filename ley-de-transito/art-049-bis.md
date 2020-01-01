@@ -14,8 +14,8 @@ II. Suspensión de licencia:
 a).- Por orden de autoridad competente;
 (REFORMADO, P.O. 2 DE NOVIEMBRE DE 2010)
 b).- Por la acumulación de infracciones cometidas en forma reiterada a esta ley o a su reglamento, ya sea estatal o el de algún municipio; y
-(REFORMADO, P.O. 2 DE NOVIEMBRE DE 2010)
-c).- A quien infrinja lo establecido en el artículo 19 Ter, fracción I, incisos b) y c), de esta ley, o sus colectivos en el Reglamento estatal o municipal de que se trate, pudiendo suspenderse hasta por tres meses, independientemente de otras infracciones a que se haga acreedor.
+(REFORMADO, P.O. 18 DE DICIEMBRE DE 2019)
+c).- A quien infrinja lo establecido en el artículo 19 Ter, fracciones I, incisos b) y c), II y III de esta ley, o sus colectivos en el Reglamento estatal o municipal de que se trate, pudiendo suspenderse hasta por seis meses, independientemente de otras infracciones a que se haga acreedor.
 III. Cancelación de licencia:
 (REFORMADO, P.O. 2 DE NOVIEMBRE DE 2010)
 a).- Por orden de autoridad competente; y,
