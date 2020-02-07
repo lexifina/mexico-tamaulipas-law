@@ -1,0 +1,3 @@
+P.O. 6 DE FEBRERO DE 2020.
+[N. DE. E. TRANSITORIO DEL "DECRETO LXIV-76 MEDIANTE EL CUAL SE REFORMA EL ARTÍCULO 37, PÁRRAFO 3, FRACCIÓN XIX DE LA LEY DE LOS DERECHOS DE NIÑAS, NIÑOS Y ADOLESCENTES DEL ESTADO DE TAMAULIPAS".]
+ARTICULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
