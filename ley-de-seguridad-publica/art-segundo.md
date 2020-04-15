@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO.- Se abroga la Ley de Seguridad Pública para el Estado de Tamaulipas expedida mediante Decreto LIX-1086, del 03 de diciembre del 2007, publicado en el Periódico Oficial del Estado, Anexo al número 156, del 27 de diciembre del 2007, así como sus reformas; asimismo, se deroga cualquier disposición jurídica que se opongan a la presente Ley.

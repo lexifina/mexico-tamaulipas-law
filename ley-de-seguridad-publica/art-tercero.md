@@ -1,0 +1,2 @@
+ARTÍCULO TERCERO.- En un término que no exceda de 90 días posteriores a la entrada en vigor de esta Ley, se expedirán el Reglamento del Servicio Profesional de Carrera Policial de la Secretaría de Seguridad Pública y el Reglamento Interior de la Secretaría de Seguridad Pública.
+Los Ayuntamientos en el ejercicio de sus respectivas competencias, deberán emitir las disposiciones jurídico administrativas a que haya lugar, para regular la carrera policial y el régimen disciplinario de sus integrantes.
