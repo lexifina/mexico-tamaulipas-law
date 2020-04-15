@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 14 DE ABRIL DE 2020)
+ARTICULO 64 BIS.- Los establecimientos que se dediquen a la venta de alimentos preparados y/o bebidas con o sin contenido alcohólico, promoverán la disminución del consumo de sales y azúcares; y para tal efecto, retirarán los saleros, azucareros y cualquier tipo de recipiente que contenga estas sustancias de las mesas, los cuales se proporcionarán únicamente a petición expresa de los comensales.
+De la misma manera, con la finalidad de crear conciencia al respecto, se colocará información de manera visible de las consecuencias para la salud del alto consumo de sales y azúcares.
