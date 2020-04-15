@@ -1,0 +1,3 @@
+P.O. 14 DE ABRIL DE 2020.
+[N. DE E. TRANSITORIO DEL "DECRETO LXIV-79 MEDIANTE EL CUAL SE ADICIONA UN ARTÍCULO 114 BIS Y SE REFORMA EL PÁRRAFO SEGUNDO DEL ARTÍCULO 115 DE LA LEY DE SALUD PARA EL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
