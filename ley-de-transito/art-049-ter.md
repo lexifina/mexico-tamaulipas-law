@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 19 DE JUNIO DE 2020)
+ARTICULO 49 TER.- Las sanciones a que hace referencia el artículo inmediato anterior, podrán ser conmutadas por trabajo a favor de la comunidad de manera proporcional a la falta cometida, siempre que la multa correspondiente no exceda hasta nueve veces el valor diario de la Unidad de Medida y Actualización, en los términos del artículo 49 Bis, fracción V de la presente Ley.

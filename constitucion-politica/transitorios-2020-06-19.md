@@ -1,0 +1,3 @@
+P.O. 19 DE JUNIO DE 2020.
+[N. DE E. TRANSITORIO DEL "DECRETO LXIV-104 MEDIANTE EL CUAL SE DEROGAN LAS FRACCIONES III Y IV, DEL ARTÍCULO 8o., Y XXII, DEL ARTÍCULO 58, DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
