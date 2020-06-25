@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 24 DE JUNIO DE 2020)
+Artículo 11 Bis.- En el caso de los poderes Legislativo y Judicial, los órganos autónomos de los poderes del Estado y los entes públicos estatales, llevarán la contabilidad y elaborarán sus informes conforme a lo previsto en la Ley General, y enviarán dicha información a la Secretaría para su integración a la Cuenta Pública del Gobierno del Estado de Tamaulipas, a más tardar el último día hábil del mes de febrero del año siguiente al ejercicio fiscal de que se trate.
