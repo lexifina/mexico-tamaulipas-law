@@ -1,0 +1,3 @@
+P.O. 8 DE JULIO DE 2020.
+[N. DE E. TRANSITORIO DEL "DECRETO LXIV-123 MEDIANTE EL CUAL SE REFORMA EL PÁRRAFO 3, DEL ARTÍCULO 18, DE LA LEY DE LOS DERECHOS DE NIÑAS, NIÑOS Y ADOLESCENTES DEL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.

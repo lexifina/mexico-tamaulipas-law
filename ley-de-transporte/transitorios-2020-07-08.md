@@ -1,0 +1,3 @@
+P.O. 8 DE JULIO DE 2020.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. LXIV-117 MEDIANTE EL CUAL SE ADICIONA UN PÁRRAFO A LA FRACCIÓN IV DEL ARTÍCULO 119 DE LA LEY DE TRANSPORTE DEL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
