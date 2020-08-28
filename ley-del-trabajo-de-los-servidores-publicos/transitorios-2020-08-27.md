@@ -1,0 +1,3 @@
+P.O. 27 DE AGOSTO DE 2020.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. LXIV-133 MEDIANTE EL CUAL SE REFORMA EL ARTÍCULO 33, FRACCIÓN XVII, DE LA LEY DEL TRABAJO DE LOS SERVIDORES PÚBLICOS DEL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente decreto iniciará su vigencia el día siguiente al de su publicación en el Periódico Oficial del Estado.
