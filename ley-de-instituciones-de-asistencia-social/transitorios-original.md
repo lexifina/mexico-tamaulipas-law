@@ -7,3 +7,4 @@ ARTICULO QUINTO.- La Coordinación, dentro de los ciento ochenta días siguiente
 SALON DE SESIONES DEL H. CONGRESO DEL ESTADO.- Cd. Victoria, Tam., a 28 de noviembre de 1990.- Diputado Presidente, C. ING. FLORENTINO AARON SAENZ COBOS.-Diputado Secretario. C. LETICIA CAMERO GOMEZ.- Diputado Secretario, C. VALENTIN ORTIZ ANDRADE.- Rúbricas.
 Por tanto, mando se imprima, publique, circule y se le dé el debido cumplimiento.
 Dado en la residencia del Poder Ejecutivo, en Ciudad Victoria, capital del Estado de Tamaulipas, a los cinco días del mes de diciembre de mil novecientos noventa.- El Gobernador Constitucional del Estado, ING. AMERICO VILLARREAL GUERRA.- El Secretario General de Gobierno, LIC. ANIBAL PEREZ VARGAS.- Rúbricas.
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]

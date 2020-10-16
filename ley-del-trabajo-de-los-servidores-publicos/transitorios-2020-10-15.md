@@ -1,0 +1,3 @@
+P.O. 15 DE OCTUBRE DE 2020.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. LXIV-148 MEDIANTE EL CUAL SE ADICIONA EL ARTÍCULO 33 BIS, A LA LEY DEL TRABAJO DE LOS SERVIDORES PÚBLICOS DEL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.

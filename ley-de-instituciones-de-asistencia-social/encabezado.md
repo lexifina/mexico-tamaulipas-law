@@ -1,5 +1,5 @@
 LEY DE INSTITUCIONES DE ASISTENCIA SOCIAL PARA EL ESTADO DE TAMAULIPAS
-Ley publicada en el Periódico Oficial, el 5 de enero de 1991.
+Ley publicada en el Periódico Oficial del Estado de Tamaulipas, el sábado 5 de enero de 1991.
 Al margen un sello que dice: "Estados Unidos Mexicanos.- Gobierno de Tamaulipas.- Poder Ejecutivo.- Secretaría General".
 AMERICO VILLARREAL GUERRA, Gobernador Constitucional del Estado Libre y Soberano de Tamaulipas, a sus habitantes hace saber:
 Que el Honorable Congreso del Estado se ha servido expedir el siguiente Decreto:
