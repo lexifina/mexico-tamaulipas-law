@@ -19,3 +19,5 @@ A quien cometa el delito de violencia familiar se le impondrá de seis meses a c
 Cuando se cometa en perjuicio de un menor de doce años, se impondrá al responsable la pena de uno a cinco años de prisión.
 (ADICIONADO, P.O. 12 DE JULIO DE 2018)
 Si el responsable fuere ascendiente o tutor del ofendido, será condenado a la pérdida, limitación o suspensión de la patria potestad, según las circunstancias del caso, a juicio del juez.
+(ADICIONADO, P.O. 22 DE NOVIEMBRE DE 2020)
+Si la víctima se encuentra en estado de embarazo, la pena se incrementará hasta en una mitad.

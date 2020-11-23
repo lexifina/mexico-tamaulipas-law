@@ -1,0 +1,3 @@
+P.O. 22 DE NOVIEMBRE DE 2020.
+[N. DE E. TRANSITORIOS DEL "DECRETO LXIV-211 MEDIANTE EL CUAL SE ADICIONA UN PÁRRAFO SEXTO AL ARTÍCULO 368 BIS DEL CÓDIGO PENAL PARA EL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.

@@ -1,4 +1,3 @@
-(DEROGADO PÁRRAFO SEXTO, P.O. 30 DE OCTUBRE DE 2018)
 (ADICIONADO, P.O. 30 DE OCTUBRE DE 2018)
 ARTICULO 368 TER. El delito a que se refiere el artículo anterior se perseguirá por querella, excepto cuando:
 I.- La víctima sea menor de edad, incapaz o no tenga la capacidad de comprender el significado del hecho;
