@@ -1,9 +1,0 @@
-B.O. 17 DE DICIEMBRE DE 1992.
-ARTICULO PRIMERO.- La presente Ley entrará en vigor al día siguiente de su publicación en el Boletín Oficial del Gobierno del Estado.
-ARTICULO SEGUNDO.- Los recursos humanos con que cuenta la Oficialía Mayor, conformarán, en lo sucesivo, el personal de la Secretaría de Gobierno, Secretaría de Planeación del Desarrollo y Gasto Público y Secretaría de Finanzas, cuyas atribuciones se modifican por la presente Ley.
-ARTICULO TERCERO.- Los recursos materiales, financieros, mobiliario, vehículos, aparatos, maquinaria, archivos, y, en general, los equipos que Oficialía Mayor haya utilizado para la atención de los asuntos de su respectiva competencia, se destinarán a las funciones que a las dependencias mencionadas en el artículo anterior señala la presente Ley.
-ARTICULO CUARTO.- Los asuntos a cargo de las unidades administrativas que se encontraren pendientes de resolución al momento de entrar en vigor la presente Ley, serán desahogados por la Dependencia que corresponda, conforme a las atribuciones que esta Ley le señala.
-ARTICULO QUINTO.- Las atribuciones que en otras leyes y en reglamentos se otorgan a Oficialía Mayor, se tendrán por conferidas a la Secretaría que de conformidad con esta Ley asume dichas atribuciones; igualmente, las atribuciones que en otros ordenamientos jurídicos se otorgan a la Tesorería General del Estado, se tendrán por conferidas a la Secretaría de Finanzas.
-ARTICULO SEXTO.- Cuando en los formularios, manifestación, avisos o demás documentos oficiales, se aluda a la Tesorería General del Estado, se entenderán referidos a la Secretaría de Finanzas, y podrán seguirse utilizando hasta agotar su existencia.
-ARTICULO SEPTIMO.- Los recursos humanos, materiales y financieros que tenía asignados la fracción XVII del artículo 34 que se deroga, pasarán a la Coordinación General de Relaciones Públicas.
-ARTICULO OCTAVO.- Se derogan todas las disposiciones que se opongan a lo dispuesto por esta Ley.

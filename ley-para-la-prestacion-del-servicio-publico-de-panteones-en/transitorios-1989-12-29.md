@@ -1,3 +1,0 @@
-B.O. 29 DE DICIEMBRE DE 1989.
-ARTICULO PRIMERO.- La presente Ley entrará en vigor el 1o. de enero de 1990, previa su publicación en el Boletín Oficial del Gobierno del Estado.
-ARTICULO SEGUNDO.- Se derogan los Artículos 13, del Decreto que crea un organismo público descentralizado denominado el Hospital Infantil del Estado de Sonora; 16 del Decreto que crea el Centro Ecológico de Sonora; 15 del Decreto que crea el Instituto de Acuacultura del Estado de Sonora y 13 del Decreto que instituye a Radio Sonora como un organismo descentralizado, publicados en el Boletín Oficial del Gobierno del Estado, con fechas 18 de junio de 1984, 24 de diciembre de 1984, 27 de diciembre de 1984 y 26 de agosto de 1985, respectivamente.

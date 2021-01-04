@@ -1,3 +1,4 @@
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ORDENAMIENTO Y SUS DECRETOS DE MODIFICACIONES, SE SUGIERE CONSULTAR LOS ARTÍCULOS TRANSITORIOS CORRESPONDIENTES.]
 CÓDIGO MUNICIPAL PARA EL ESTADO DE TAMAULIPAS
 Código publicado en el Periódico Oficial del Estado de Tamaulipas, el sábado 4 de febrero de 1984.
 EL CIUDADANO DOCTOR EMILIO MARTINEZ MANAUTOU Gobernador Constitucional del Estado Libre y Soberano de Tamaulipas, a sus habitantes hace saber:
