@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 29 DE JULIO DE 2020)
+Artículo 76 Ter. Para efectos de este Capítulo serán aplicables de manera supletoria el Código para el Desarrollo Sustentable del Estado de Tamaulipas y demás disposiciones vigentes en el Estado en materia de derecho al medio ambiente sano, que no sean contrarias a la naturaleza del derecho fiscal.
+Para determinar la base gravable, las autoridades fiscales podrán considerar:
+I.- Los libros y registros sea cual fuera su denominación, que los sujetos obligados al pago del derecho deban llevar conforme a las disposiciones legales, sean de carácter fiscal, mercantil o para dar cumplimiento a las normas en materia de ecología y medio ambiente; y
+II.- Cuando no sea posible determinar la base gravable en los términos de la fracción anterior, las autoridades fiscales podrán estimar la cantidad conforme a la información que se obtenga de otras autoridades, terceros, estudios científicos o tecnológicos, considerando el tipo de actividades realizadas por el contribuyente y la producción o venta del periodo en el que se causó el derecho.
