@@ -1,0 +1,3 @@
+P.O. 4 DE MARZO DE 2021.
+[N. DE E. TRANSITORIO DEL "DECRETO LXIV-504 MEDIANTE EL CUAL SE REFORMA EL ARTÍCULO 38 DE LA LEY DE OBRAS PÚBLICAS Y SERVICIOS RELACIONADOS CON LAS MISMAS PARA EL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente decreto iniciará su vigencia el día siguiente al de su publicación en el Periódico Oficial del Estado.
