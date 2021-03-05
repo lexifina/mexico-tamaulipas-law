@@ -1,0 +1,3 @@
+P.O. 4 DE MARZO DE 2021.
+[N. DE E. TRANSITORIO DEL "DECRETO LXIV-491 MEDIANTE EL CUAL SE ADICIONAN LOS ARTÍCULOS 32 BIS Y 32 TER A LA LEY DE LOS DERECHOS DE NIÑAS, NIÑOS Y ADOLESCENTES DEL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.

@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 4 DE MARZO DE 2021)
+ARTÍCULO 32 Ter.
+Las niñas, niños y adolescentes tienen derecho a que se proteja cualquier manejo directo de su imagen, nombre, datos personales o referencias que permitan su identificación en los medios de comunicación locales, o en redes sociales y en general en medios digitales. En caso de que sea necesario, debe hacerse mediante autorización por escrito, o por cualquier otro medio que permita constatarla, de quienes ejerzan la patria potestad, tutela, guarda o custodia, quedando prohibido se lleve a cabo toda exposición, aun existiendo dicho consentimiento, si ésta implica menoscabo de su honra o reputación, es contraria a sus derechos o las y los ponga en riesgo, conforme al principio de interés superior de la niñez.

@@ -1,0 +1,3 @@
+P.O. 4 DE MARZO DE 2021.
+[N. DE E. TRANSITORIO DEL "DECRETO LXIV-505 MEDIANTE EL CUAL SE ADICIONA EL CAPÍTULO XIII Y LOS ARTÍCULOS 64, 65, 66, 67 Y 68 A LA LEY DEL PATRIMONIO HISTÓRICO Y CULTURAL DEL ESTADO".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
