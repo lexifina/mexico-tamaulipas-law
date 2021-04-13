@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 12 DE ABRIL DE 2021)
+Artículo 10 Bis. Con la finalidad de garantizar los derechos de las personas con la condición del espectro autista y su plena inclusión social, las autoridades estatales y municipales se coordinarán en aras (sic) de establecer centros de atención integral, de conformidad con los estudios e índices de prevalencia de este padecimiento entre la población tamaulipeca.
