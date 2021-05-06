@@ -1,0 +1,3 @@
+P.O. 5 DE MAYO DE 2021.
+[N. DE E. TRANSITORIO DE "DECRETO LXIV-524 MEDIANTE EL CUAL SE ADICIONA EL ARTÍCULO 4 BIS A LA LEY PARA LA PROMOCIÓN DE LOS VALORES Y LA CULTURA DE LA LEGALIDAD DEL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
