@@ -17,7 +17,7 @@ VII.- Que la mujer presente original de certificado médico en el que conste que
 El Oficial del Registro Civil, después de haber verificado que los solicitantes cumplieron con los requisitos antes mencionados, levantará un acta en la que hará constar la solicitud de divorcio administrativo y citará a los cónyuges para que se presenten a ratificar la solicitud dentro de un plazo no menor de diez ni mayor de quince días.
 (ADICIONADO, P.O. 5 DE JUNIO DE 2001)
 Si los cónyuges ratifican la solicitud, el Oficial del Registro Civil los declarará divorciados, levantando el acta correspondiente ante la presencia de dos testigos y hará la anotación respectiva para la cancelación del matrimonio.
-(ADICIONADO, P.O. 5 DE JUNIO DE 2001)
-Los cónyuges que sean declarados divorciados no podrán contraer matrimonio, hasta que transcurra un año a partir de la declaración de divorcio administrativo.
+(REFORMADO, P.O. 13 DE JULIO DE 2021)
+Los cónyuges una vez declarados divorciados, podrán contraer matrimonio en el momento que así lo decidan.
 (ADICIONADO, P.O. 5 DE JUNIO DE 2001)
 Si se comprueba que los cónyuges no cumplen con los requisitos exigidos, el divorcio así obtenido no producirá efectos, independientemente de las sanciones previstas en las leyes.
