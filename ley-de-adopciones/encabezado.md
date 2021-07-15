@@ -1,5 +1,5 @@
 LEY DE ADOPCIONES PARA EL ESTADO DE TAMAULIPAS
-Ley publicada en el Extraordinario del Periódico Oficial del Gobierno Constitucional del Estado de Tamaulipas, publicado el lunes 8 de mayo de 2017.
+Ley publicada en el Extraordinario del Periódico Oficial del Estado de Tamaulipas, el lunes 8 de mayo de 2017.
 FRANCISCO JAVIER GARCÍA CABEZA DE VACA, Gobernador Constitucional del Estado Libre y Soberano de Tamaulipas, a sus habitantes hace saber:
 Que el Honorable Congreso del Estado, ha tenido a bien expedir el siguiente Decreto:
 Al margen un sello que dice: – "Estados Unidos Mexicanos.- Gobierno de Tamaulipas.- Poder Legislativo.
