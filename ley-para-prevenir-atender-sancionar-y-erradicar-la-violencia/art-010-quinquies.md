@@ -1,10 +1,12 @@
 (REFORMADO PRIMER PÁRRAFO, P.O. 14 DE JULIO DE 2021)
-Artículo 10 Quinquies. Se integrará el Grupo Técnico de Colaboración del Protocolo Alba, el cual tiene el objetivo de brindar mayor cobertura en la implementación de los mecanismos de búsqueda y localización de niñas y mujeres desaparecidas. Será presidido por el Titular de la Fiscalía General de Justicia del Estado de Tamaulipas.
+Artículo 10 Quinquies.
+(REFORMADO, P.O. 14 DE JULIO DE 2021)
+Se integrará el Grupo Técnico de Colaboración del Protocolo Alba, el cual tiene el objetivo de brindar mayor cobertura en la implementación de los mecanismos de búsqueda y localización de niñas y mujeres desaparecidas. Será presidido por el Titular de la Fiscalía General de Justicia del Estado de Tamaulipas.
 (ADICIONADO, P.O. 11 DE DICIEMBRE DE 2018)
 El Grupo Técnico de Colaboración estará conformado por al menos las instituciones que se enlistan a continuación:
 (ADICIONADA, P.O. 11 DE DICIEMBRE DE 2018)
 I. Secretaría General de Gobierno;
-(REFORMADA, P.O. 14 DE JULIO DE 2021)
+(REFORMADA [N. DE E. REPUBLICADA], P.O. 14 DE JULIO DE 2021)
 II. Fiscalía General de Justicia del Estado de Tamaulipas;
 (ADICIONADA, P.O. 11 DE DICIEMBRE DE 2018)
 III. Secretaría de Seguridad Pública;
