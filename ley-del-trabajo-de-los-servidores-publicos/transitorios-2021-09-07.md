@@ -1,0 +1,3 @@
+P.O. 7 DE SEPTIEMBRE DE 2021.
+[N. DE E. TRANSITORIO DEL "DECRETO LXIV-612 MEDIANTE EL CUAL SE REFORMA LA FRACCIÓN II DEL ARTÍCULO 32 BIS DE LA LEY DEL TRABAJO DE LOS SERVIDORES PÚBLICOS DEL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado de Tamaulipas.

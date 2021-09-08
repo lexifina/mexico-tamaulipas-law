@@ -1,7 +1,8 @@
 (ADICIONADO, P.O. 24 DE SEPTIEMBRE DE 2013)
 ARTICULO 32 Bis. Las mujeres trabajadoras tendrán los siguientes derechos relacionados con el embarazo:
 l.- Durante el período del embarazo, no realizarán trabajos que exijan esfuerzos considerables y signifiquen un peligro para su salud en relación con la gestación, tales como levantar, tirar o empujar grandes pesos, que produzcan trepidación, estar de pie durante largo tiempo o que actúen o puedan alterar su estado psíquico y nervioso;
-II.- Disfrutarán de un descanso, al menos, de seis semanas anteriores y seis posteriores al parto;
+(REFORMADA, P.O. 7 DE SEPTIEMBRE DE 2021)
+II.- Disfrutarán de un descanso, al menos, de seis semanas anteriores y seis posteriores al parto. En caso de que los hijos hayan nacido con cualquier tipo de discapacidad o requieran atención médica hospitalaria, el descanso podrá ser de hasta ocho semanas posteriores al parto, previa presentación del certificado médico correspondiente.
 III.- Los períodos de descanso a que se refiere la fracción anterior se prorrogarán por el tiempo necesario, en el caso de que se encuentren imposibilitadas para trabajar a causa del embarazo o del parto;
 (REFORMADA, P.O. 21 DE DICIEMBRE DE 2016)
 IV.- En el período de lactancia tendrán derecho a decidir entre contar con dos reposos extraordinarios por día, de media hora cada uno, o bien, un descanso extraordinario por día, de una hora para amamantar a sus hijos, o para realizar la extracción manual de leche, en lugar adecuado e higiénico que designe la dependencia o entidad estatal;
