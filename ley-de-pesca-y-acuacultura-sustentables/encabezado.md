@@ -1,5 +1,5 @@
 LEY DE PESCA Y ACUACULTURA SUSTENTABLES DEL ESTADO DE TAMAULIPAS
-Ley publicada en el Periódico Oficial del estado de Tamaulipas, el jueves 1º, de septiembre de 2011
+Ley publicada en el Periódico Oficial del Estado de Tamaulipas, el jueves 1 de septiembre de 2011.
 EGIDIO TORRE CANTÚ, Gobernador Constitucional del Estado Libre y Soberano de Tamaulipas, a sus habitantes hace saber:
 Que el Honorable Congreso del Estado, ha tenido a bien expedir el siguiente Decreto:
 Al margen un sello que dice:- "Estados Unidos Mexicanos.- Gobierno de Tamaulipas.- Poder Legislativo.
