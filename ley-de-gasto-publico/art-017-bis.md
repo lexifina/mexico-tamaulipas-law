@@ -1,0 +1,15 @@
+(ADICIONADO, P.O. 21 DE SEPTIEMBRE DE 2021)
+ARTICULO 17 Bis.- La Secretaría, autorizará la ministración de los subsidios y transferencias que con cargo a los presupuestos de las dependencias y, en su caso, de las entidades, se aprueben en el Presupuesto de Egresos.
+Las personas titulares de las dependencias y entidades, con cargo a cuyos presupuestos se autorice la ministración de subsidios y transferencias, serán responsables, en el ámbito de su competencia, de que éstos se otorguen y ejerzan conforme a las disposiciones generales aplicables.
+Los subsidios deberán sujetarse a los criterios de objetividad, equidad, transparencia, publicidad, selectividad y temporalidad, para lo cual las dependencias y entidades que los otorguen deberán:
+I.- Identificar con precisión a la población objetivo, tanto por grupo específico como por regiones y municipios de la entidad;
+II.- Prever, en su caso, montos máximos por persona beneficiaria y por porcentaje del costo total del programa. En los programas de beneficio directo a individuos o grupos sociales, los montos y porcentajes se establecerán con base en criterios redistributivos que deberán privilegiar a la población de menores ingresos y procuren la equidad entre regiones y municipios de la entidad, sin demérito de la eficiencia en el logro de los objetivos;
+III.- Procurar que el mecanismo de distribución, operación y administración otorgue acceso equitativo a todos los grupos sociales y géneros;
+IV.- Garantizar que los recursos se canalicen exclusivamente a la población objetivo y asegurar que el mecanismo de distribución, operación y administración facilite la obtención de información y la evaluación de los resultados respecto a los beneficios económicos y sociales de su asignación y aplicación; así como evitar que se destinen recursos a una administración costosa y excesiva;
+V.- Incorporar mecanismos periódicos de seguimiento, supervisión y evaluación que permitan ajustar las modalidades de su operación o decidir sobre su cancelación;
+VI.- Buscar, en su caso, fuentes alternativas de ingresos para lograr una mayor autosuficiencia y una disminución o cancelación de los apoyos con cargo a recursos presupuestarios;
+VII.- Asegurar la coordinación de acciones entre dependencias y entidades, para evitar duplicación en el ejercicio de los recursos y reducir gastos administrativos;
+VIII.- Prever la temporalidad en su otorgamiento;
+IX.- Procurar que sea el medio más eficaz y eficiente para alcanzar los objetivos y metas que se pretenden; y
+X.- Reportar su ejercicio en los informes trimestrales, detallando los elementos a que se refieren las fracciones I a IX de este artículo, incluyendo el importe de los recursos.
+Las transferencias destinadas a cubrir el déficit de operación y los gastos de administración asociados con el otorgamiento de subsidios de las entidades y sus órganos administrativos desconcentrados serán otorgadas de forma excepcional y temporal, siempre que se justifique ante la Secretaría su beneficio económico y social. Estas transferencias se sujetarán a lo establecido en las fracciones V, VI, VIII, IX y X de este artículo.

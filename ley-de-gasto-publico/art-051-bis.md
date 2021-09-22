@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 21 DE SEPTIEMBRE DE 2021)
+ARTICULO 51 Bis.- Las dependencias y entidades podrán solicitar transferencias o modificaciones presupuestales hacia el interior de sus presupuestos autorizados apegadas a los procedimientos, requisitos y términos que determine la Secretaría, debiendo en su caso considerar el impacto en las metas de los indicadores de los Programas Presupuestarios sujetos a estos movimientos, conforme a los lineamientos en la materia.
+La Secretaría definirá mediante disposiciones de carácter general los procedimientos, requisitos y términos conforme a los cuales se llevarán a cabo las transferencias o modificaciones de recursos en los presupuestos autorizados a las dependencias y entidades.
