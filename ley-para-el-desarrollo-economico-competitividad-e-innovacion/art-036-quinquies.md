@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 23 DE SEPTIEMBRE DE 2021)
+ARTICULO 36 QUINQUIES. El Comité de Clústeres sesionará en forma ordinaria por lo menos una vez cada seis meses y en forma extraordinaria, las veces que sea necesario.
+Las sesiones serán convocadas por la persona titular de la Presidencia del Comité de Clústeres, especificando la fecha, el lugar y el orden del día de la sesión. Las sesiones ordinarias deberán ser convocadas por lo menos con setenta y dos horas de anticipación y las extraordinarias con veinticuatro horas de anticipación.
+A propuesta de quien presida la sesión, se nombrará una persona Secretaria Técnica, misma que realizará las funciones que se le asignen en las disposiciones reglamentarias y las que le asignen en el Comité de Clústeres.
+El quórum legal para sesionar será con la asistencia por mayoría de las personas miembros integrantes con derecho a voto o, en su caso, sus respectivos suplentes. De igual manera, las determinaciones que se emitan en dicha sesión deberán ser aprobadas por la mayoría de las personas presentes, en caso de empate quien presida la sesión tendrá el voto de calidad.

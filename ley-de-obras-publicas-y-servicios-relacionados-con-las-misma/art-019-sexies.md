@@ -1,14 +1,4 @@
-(ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, P.O. 9 DE ENERO DE 2019)
+(DEROGADO CON LOS ARTÍCULOS QUE LO INTEGRAN, P.O. 23 DE SEPTIEMBRE DE 2021)
 CAPÍTULO SEGUNDO
 DE LOS CORRESPONSABLES
-(ADICIONADO, P.O. 9 DE ENERO DE 2019)
-ARTÍCULO 19 SEXIES. Corresponsable es la persona física auxiliar de la Administración, con autorización y registro de la Autoridad Competente, con los conocimientos técnicos relativos a la seguridad estructural, al diseño urbano y arquitectónico e instalaciones, quien responderá en forma conjunta con el Director Responsable de Obra, o autónoma en los casos en que otorgue su responsiva, en todos los aspectos técnicos relacionados al ámbito de su intervención profesional, y deberá cumplir con lo establecido en la presente Ley, en el Reglamento de Construcciones y en las demás disposiciones aplicables, correspondiendo a la Autoridad otorgar su autorización y registro.
-I. Corresponsable en Diseño Urbano y Arquitectónico, para:
-a) Habitación Plurifamiliar de más de 50 viviendas, hospitales, clínicas, centros de salud, edificaciones para exhibiciones, baños públicos, estaciones y terminales de transporte terrestre, aeropuertos, estudios cinematográficos y de televisión, estaciones de servicio para el expendio de combustible y carburantes, y pasos peatonales;
-b) El resto de las edificaciones que tengan más de 2,000 m² cubiertos, o más de 20 m de altura, sobre nivel medio de banqueta, o con capacidad para más de 250 concurrentes en locales cerrados, o más de 1,000 concurrentes en locales abiertos;
-c) Estaciones de comunicación celular y/o inalámbrica, chimeneas y/o cualquier otro tipo de instalación que rebase la altura de 15 m sobre su nivel de desplante.
-II. Corresponsable en Instalaciones, para:
-a) Habitación plurifamiliar de más de 50 viviendas, baños públicos, lavanderías, tintorerías, lavado y lubricación de vehículos, hospitales, clínicas y centros de salud, instalaciones para exhibiciones, crematorios, aeropuertos, centrales telegráficas, telefónicas y de comunicación, estaciones de radio y televisión, estaciones repetidoras de comunicación celular y/o inalámbrica, estudios cinematográficos, industria pesada y mediana; plantas, estaciones y subestaciones eléctricas; estaciones de bombeo, albercas con iluminación subacuática, circos, ferias de cualquier magnitud, estaciones de servicio para el expendio de combustible y carburantes, y estaciones de transferencia de basura;
-b) El resto de las edificaciones que tengan más de 2,000 m² cubiertos, o más de 15 m de altura sobre nivel medio de banqueta o más de 250 concurrentes;
-c) Toda edificación que cuente con elevadores de pasajeros, de carga, industriales, residenciales o escaleras o rampas electromecánicas; y
-d) Las edificaciones ubicadas en zonas de Patrimonio Histórico, Artístico y Arqueológico de la Federación o en áreas de conservación patrimonial Estatal y/o Municipales en las que se realicen instalaciones electromecánicas nuevas o se modifiquen.
+ARTÍCULO 19 SEXIES. (DEROGADO, P.O. 23 DE SEPTIEMBRE DE 2021)
