@@ -1,0 +1,1 @@
+ARTÍCULO TERCERO. Dentro de los siguientes 90 días hábiles a la entrada en vigor del presente Decreto, deberán realizarse las reformas o adiciones necesarias en la legislación estatal aplicable a fin de armonizarla con este ordenamiento.

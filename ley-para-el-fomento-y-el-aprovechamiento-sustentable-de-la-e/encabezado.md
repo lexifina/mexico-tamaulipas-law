@@ -1,0 +1,10 @@
+LEY PARA EL FOMENTO Y EL APROVECHAMIENTO SUSTENTABLE DE LA ENERGÍA EN EL ESTADO DE TAMAULIPAS
+Ley publicada en la Edición Vespertina Número 114 del Periódico Oficial del Estado de Tamaulipas, el jueves 23 de septiembre de 2021.
+EXPOSICIÓN DE MOTIVOS del Decreto mediante el cual se expide la Ley para el Fomento y Aprovechamiento Sustentable de la Energía en el Estado de Tamaulipas
+[…]
+FRANCISCO JAVIER GARCÍA CABEZA DE VACA, Gobernador Constitucional del Estado Libre y Soberano de Tamaulipas, a sus habitantes hace saber:
+Que el Honorable Congreso del Estado, ha tenido a bien expedir el siguiente Decreto:
+Al margen un sello que dice:- "Estados Unidos Mexicanos.- Gobierno de Tamaulipas.- Poder Legislativo.
+LA SEXAGÉSIMA CUARTA LEGISLATURA CONSTITUCIONAL DEL CONGRESO DEL ESTADO LIBRE Y SOBERANO DE TAMAULIPAS, EN USO DE LAS FACULTADES QUE LE CONFIEREN LOS ARTÍCULOS 58 FRACCIÓN I DE LA CONSTITUCIÓN POLÍTICA LOCAL; Y 119 DE LA LEY SOBRE LA ORGANIZACIÓN Y FUNCIONAMIENTO INTERNOS DEL CONGRESO DEL ESTADO LIBRE Y SOBERANO DE TAMAULIPAS, TIENE A BIEN EXPEDIR EL SIGUIENTE:
+D E C R E T O No. LXIV-818
+MEDIANTE EL CUAL SE CREA LA LEY PARA EL FOMENTO Y EL APROVECHAMIENTO SUSTENTABLE DE LA ENERGÍA EN EL ESTADO DE TAMAULIPAS.

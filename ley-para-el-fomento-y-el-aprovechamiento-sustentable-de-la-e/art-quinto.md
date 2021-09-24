@@ -1,0 +1,5 @@
+ARTÍCULO QUINTO. Dentro de los siguientes 120 días hábiles a la entrada en vigor del presente Decreto, el Comité deberá de presentar a la persona titular del Poder Ejecutivo del Estado el Programa de Fomento y Aprovechamiento Sustentable de la Energía para el Estado de Tamaulipas, mismo que deberá de ser aprobado por la persona titular del Poder Ejecutivo del Estado dentro de los siguientes 60 días hábiles en que le sea presentado.
+SALÓN DE SESIONES DEL CONGRESO DEL ESTADO LIBRE Y SOBERANO DE TAMAULIPAS.- Cd. Victoria, Tam., a 22 de septiembre del año 2021.- DIPUTADA PRESIDENTA.- IMELDA MARGARITA SANMIGUEL SÁNCHEZ.- Rúbrica.- DIPUTADO SECRETARIO.- ALFREDO VANZZINI AGUIÑAGA.- Rúbrica.- DIPUTADA SECRETARIA.- EDNA RIVERA LÓPEZ.- Rúbrica.
+Por tanto, mando se imprima, publique, circule y se le dé el debido cumplimiento.
+Dado en la residencia del Poder Ejecutivo, en Victoria, Capital del Estado de Tamaulipas, a los veintidós días del mes de septiembre del año dos mil veintiuno.
+ATENTAMENTE.- EL GOBERNADOR CONSTITUCIONAL DEL ESTADO.- FRANCISCO JAVIER GARCÍA CABEZA DE VACA.- Rúbrica.- EL SECRETARIO GENERAL DE GOBIERNO.- CÉSAR AUGUSTO VERÁSTEGUI OSTOS.- Rúbrica.
