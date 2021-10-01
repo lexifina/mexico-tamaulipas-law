@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 30 DE SEPTIEMBRE DE 2021)
+ARTICULO 60 BIS.
+1. En los supuestos establecidos en el artículo 270 de este Código, cuando el promovente solicite la evaluación de la manifestación de impacto ambiental de forma voluntaria o con motivo de un procedimiento administrativo iniciado de oficio por la Secretaría, deberá de presentar adicionalmente un estudio de daño ambiental.
+2. Cuando el promovente se encuentre en los supuestos del artículo 270 de este Código, y desee continuar con la obra y/o actividad que diera lugar al procedimiento por daño ambiental, y sea requisito previo la obtención de la autorización en materia de impacto ambiental a que se refiere el presente Capítulo y su reglamento, será necesario de forma inexcusable que presente fianza para garantizar el cumplimiento de lo establecido en el dictamen por daño ambiental que resulte.
+3. La presentación del estudio por daño ambiental de forma conexa a la manifestación de impacto ambiental en términos de este artículo, no presupone la autorización de esta última.

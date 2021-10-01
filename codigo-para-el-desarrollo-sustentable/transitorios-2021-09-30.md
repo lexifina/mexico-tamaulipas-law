@@ -1,0 +1,8 @@
+P.O. 30 DE SEPTIEMBRE DE 2021.
+[N. DE E. TRANSITORIOS DEL "DECRETO NO. LXIV-830 MEDIANTE EL CUAL SE REFORMAN, ADICIONAN Y DEROGAN DIVERSAS DISPOSICIONES DEL CÓDIGO PARA EL DESARROLLO SUSTENTABLE DEL ESTADO DE TAMAULIPAS".]
+ARTÍCULO PRIMERO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+ARTÍCULO SEGUNDO. El titular de la Secretaría de Desarrollo Urbano y Medio Ambiente, dentro de los 60 días hábiles siguientes, a partir de la entrada en vigor del presente Decreto, deberá presentar al Ejecutivo del Estado, las modificaciones a los reglamentos que correspondan, para ajustarlos a lo dispuesto en este Decreto.
+ARTÍCULO TERCERO. En tanto se armoniza la normatividad reglamentaria que se ve modificada por la entrada en vigor del presente Decreto conforme a lo dispuesto en el artículo anterior, en lo conducente, se estará a lo dispuesto en los reglamentos respectivos, en tanto no se oponga al presente Decreto.
+ARTÍCULO CUARTO. El titular de la Secretaría de Desarrollo Urbano y Medio Ambiente, dentro de los 180 días hábiles siguientes a la entrada en vigor del presente Decreto, deberá emitir la Norma Ambiental Estatal para Centros de Manejo Integral de Residuos.
+ARTÍCULO QUINTO. Los municipios y/o quienes operen sitios de disposición final de residuos sólidos urbanos y/o de manejo especial, contarán con un plazo de cinco años a partir de la emisión de la Norma Ambiental Estatal para Centros de Manejo Integral de Residuos, para realizar las adecuaciones técnicas y presupuestales necesarias para cumplir con lo señalado en el numeral 5 del artículo 138 del presente Decreto.
+ARTÍCULO SEXTO. Se derogan aquellas disposiciones que se opongan al presente Decreto.
