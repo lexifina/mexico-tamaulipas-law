@@ -1,13 +1,11 @@
 (ADICIONADO CON LAS SECCIONES Y ARTÍCULOS QUE LO INTEGRAN, P.O. 30 DE SEPTIEMBRE DE 2021)
 CAPÍTULO SEXTO BIS
 DE LOS ASUNTOS QUE PASAN DE UNA LEGISLATURA A OTRA.
-(ADICIONADA CON LOS ARTÍCULOS QUE LA INTEGRAN, P.O. 30 DE SEPTIEMBRE DE 2021)
+(REFORMADA SU DENOMINACIÓN, P.O. 2 DE NOVIEMBRE DE 2021)
 SECCIÓN PRIMERA
-DE LAS INICIATIVAS Y MINUTAS
-(ADICIONADO, P.O. 30 DE SEPTIEMBRE DE 2021)
+DE LA CADUCIDAD LEGISLATIVA
+(REFORMADO, P.O. 2 DE NOVIEMBRE DE 2021)
 ARTICULO 58 BIS.
-1. Las iniciativas cuyo plazo para ser dictaminadas y/o resueltas haya vencido y que no fueron procesadas durante la legislatura saliente, de conformidad con los artículos 89 y 184, quedarán bajo resguardo de la Unidad de Servicios Parlamentarios hasta el término del primer periodo Ordinario del Segundo año de ejercicio de la legislatura entrante.
-2. La Unidad de Servicios Parlamentarios al finalizar la legislatura saliente, publicará el listado respectivo en la Gaceta; así como, en un micrositio del Congreso del Estado.
-3. La Diputada o Diputado electo para un periodo consecutivo que haya sido iniciante en la legislatura anterior; los Grupos Parlamentarios a través de su Coordinador o Coordinadora; o la Junta directiva de las comisiones ordinarias en ejercicio podrán solicitar a la Presidencia de la Mesa Directiva que se turne una o varias de las iniciativas que se encuentren en el listado antes referido. Estas iniciativas serán turnadas a las comisiones correspondientes y serán procesadas en términos de la presente ley.
-4. Las iniciativas que no fuesen solicitadas para ser turnadas a la o las comisiones correspondientes durante el Primer Periodo Ordinario del Segundo Año de Ejercicio de la legislatura entrante, se tendrán por desechadas y se archivarán como asuntos total y definitivamente concluidos.
-5. Las minutas cuyo plazo para ser dictaminadas y/o resueltas haya vencido, que no fueron procesadas durante la legislatura o que tengan una antigüedad mayor a dos legislaturas, se integrarán en un listado elaborado por la Mesa Directiva, que será hecho del conocimiento del Pleno y comunicado respecto a su desahogo en términos de la presente ley.
+1. Los expedientes que tengan el carácter de iniciativa de Ley, de Decreto, de Punto de Acuerdo o de Acuerdo Económico y que no hayan sido dictaminados durante la Legislatura anterior a la que transcurre, serán dados de baja por caducidad del listado de asuntos pendientes, sin más trámite, por Acuerdo aprobado por la mayoría de los Diputados y Diputadas presentes en el Pleno Legislativo, ordenándose que las mismas sean remitidas al Archivo del Congreso del Estado Libre y Soberano de Tamaulipas.
+2. La relación de iniciativas que sean dadas de baja por caducidad, como lo dispone el párrafo anterior, serán publicadas en la Gaceta Parlamentaria del Congreso del Estado Libre y Soberano de Tamaulipas.
+3. Quedan exceptuadas de la baja por caducidad: las minutas, denuncias de juicio político, así como las solicitudes de declaraciones de procedencia y cuentas públicas.

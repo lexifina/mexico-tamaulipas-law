@@ -1,4 +1,1 @@
-(ADICIONADO, P.O. 30 DE SEPTIEMBRE DE 2021)
-ARTICULO 58 TER.
-1. La Unidad de Servicios Parlamentarios al finalizar la legislatura, elaborará un listado con las iniciativas y minutas que no hayan sido dictaminadas y/o resueltas y cuyo plazo continúe vigente, el cual será remitido a la Mesa Directiva de la legislatura entrante para su publicación en la Gaceta.
-2. Las iniciativas y minutas que no hayan sido dictaminadas y/o resueltas y cuyo plazo continúe vigente, que sean recibidas por la legislatura entrante, serán turnadas a las comisiones correspondientes una vez que hayan sido instaladas, para efecto de que sean procesadas en los términos parlamentarios.
+ARTICULO 58 TER. (DEROGADO, P.O. 2 DE NOVIEMBRE DE 2021)
