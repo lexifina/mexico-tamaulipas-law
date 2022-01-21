@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 20 DE ENERO DE 2022)
+Artículo 9 Quindecies.
+1. Las órdenes de protección deberán ser evaluadas para modificarse o adecuarse, en caso de que al momento de evaluar la efectividad de la orden se detecten irregularidades o incumplimiento por parte de las autoridades responsables, se sustanciará la comunicación correspondiente a los órganos internos de control de las dependencias involucradas.
+2. Previo a la suspensión de las órdenes de protección decretadas, las autoridades administrativas, ministeriales y órganos jurisdiccionales deberán asegurarse bajo su más estricta responsabilidad que la situación de riesgo o peligro de la víctima ha cesado, realizando una nueva evaluación de riesgo y analizando los informes de implementación por parte de las autoridades responsables de su cumplimiento.

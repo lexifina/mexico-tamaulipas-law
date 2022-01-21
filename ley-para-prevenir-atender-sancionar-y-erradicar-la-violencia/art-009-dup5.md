@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 20 DE ENERO DE 2022)
+Artículo 9 Duovicies.
+Se entenderá en los términos de esta ley por mujer también, a niñas y adolescentes; en el caso de mujeres mayores de 12 años de edad, éstas podrán solicitar por sí mismas a las autoridades competentes que los representen en sus solicitudes y acciones, a efecto de que las autoridades correspondientes puedan de manera oficiosa dar el otorgamiento de las órdenes. Cuando se trate de personas menores de 12 años de edad, cualquier persona que tenga conocimiento de un hecho violento en su contra o el menor a través de sus representantes, podrá informar a las autoridades competentes para que éstas de manera oficiosa otorguen las órdenes correspondientes.

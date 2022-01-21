@@ -1,0 +1,7 @@
+(ADICIONADO, P.O. 20 DE ENERO DE 2022)
+Artículo 9 Ter.
+1. Las órdenes de protección que consagra la presente ley son personalísimas e intransferibles y podrán ser:
+I. Administrativas: que son emitidas por el Ministerio Público y las autoridades administrativas, y
+II. De naturaleza jurisdiccional: que son las emitidas por los órganos encargados de la administración de justicia.
+2. Las órdenes de protección tendrán una duración de hasta 60 días, prorrogables por 30 días más o por el tiempo que dure la investigación o prolongarse hasta que cese la situación de riesgo para la víctima.
+3. Deberán expedirse de manera inmediata o a más tardar dentro de las 4 horas siguientes al conocimiento de los hechos que las generan.
