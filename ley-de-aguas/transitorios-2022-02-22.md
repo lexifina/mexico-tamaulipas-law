@@ -1,0 +1,3 @@
+P.O. 22 DE FEBRERO DE 2022.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. 65-116 MEDIANTE EL CUAL SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES DE LA LEY DE AGUAS DEL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
