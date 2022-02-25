@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 22 DE FEBRERO DE 2022)
+Artículo 85 BIS. Por los servicios de evaluación que presta el Centro Estatal de Evaluación y Control de Confianza, para las evaluaciones a que se refiere la Ley General del Sistema Nacional de Seguridad Pública y la Ley de Coordinación del Sistema de Seguridad Pública del Estado de Tamaulipas, se cobrará lo equivalente a noventa veces el valor diario de la Unidad de Medida y Actualización, por evaluación.
