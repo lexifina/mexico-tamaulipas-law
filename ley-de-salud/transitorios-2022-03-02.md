@@ -1,0 +1,3 @@
+P.O. 2 DE MARZO DE 2022.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. 65-120 MEDIANTE EL CUAL SE REFORMAN LAS FRACCIONES IV Y V, Y SE ADICIONA UNA FRACCIÓN VI AL ARTÍCULO 29 DE LA LEY DE SALUD PARA EL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
