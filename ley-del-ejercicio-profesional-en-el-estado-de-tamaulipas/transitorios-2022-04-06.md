@@ -1,0 +1,3 @@
+P.O. 6 DE ABRIL DE 2022.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. 65-140 MEDIANTE EL CUAL SE ADICIONA EL PÁRRAFO OCTOGÉSIMO TERCERO AL ARTÍCULO 5° DE LA LEY DEL EJERCICIO PROFESSIONAL EN EL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
