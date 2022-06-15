@@ -1,0 +1,5 @@
+P.O. 14 DE JUNIO DE 2022.
+[N. DE E. TRANSITORIOS DEL "DECRETO NO. 65-150 MEDIANTE EL CUAL SE REFORMA EL ARTÍCULO 35 DE LA LEY DE LOS DERECHOS DE LAS PERSONAS CON DISCAPACIDAD DEL ESTADO DE TAMAULIPAS Y SE ADICIONA EL ARTÍCULO 205 BIS AL CÓDIGO MUNICIPAL PARA EL ESTADO DE TAMAULIPAS".]
+ARTÍCULO PRIMERO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+ARTÍCULO SEGUNDO. Los 43 Ayuntamientos de la Entidad tendrán hasta un año a partir de la entrada en vigor del presente Decreto para dotar sus instalaciones de accesibilidad realizando las adecuaciones necesarias en los edificios municipales para la verdadera integración de las personas con discapacidad al ámbito laboral y deberán colocar en los edificios públicos los sistemas de identificación visual-auditiva o a través de carteles en braille y/o guías capacitados como instrumentos para una adecuada posibilidad adaptativa con discapacidad.
+ARTÍCULO TERCERO. Remítase a la Comisión de Derechos Humanos del Estado de Tamaulipas, para su seguimiento y atención, el presente Decreto, especialmente a lo referente en el Artículo Segundo Transitorio.
