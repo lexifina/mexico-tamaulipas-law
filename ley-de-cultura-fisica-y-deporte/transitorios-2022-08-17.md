@@ -1,0 +1,3 @@
+P.O. 17 DE AGOSTO DE 2022.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. 65-169 MEDIANTE EL CUAL SE ADICIONAN LOS ARTÍCULOS 4 BIS; 4 TER; 4 QUÁTER; 4 QUINQUIES, A LA LEY DE CULTURA FÍSICA Y DEPORTE PARA EL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.

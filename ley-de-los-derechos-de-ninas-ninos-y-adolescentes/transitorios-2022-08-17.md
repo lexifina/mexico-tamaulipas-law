@@ -1,0 +1,3 @@
+P.O. 17 DE AGOSTO DE 2022.
+[N. DE E. TRANSITORIO DEL "DECRETO No. 65-171 MEDIANTE EL CUAL SE ADICIONA UN ARTÍCULO 69 TER, A LA LEY DE LOS DERECHOS DE NIÑAS, NIÑOS Y ADOLESCENTES DEL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
