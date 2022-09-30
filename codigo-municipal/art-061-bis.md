@@ -1,0 +1,5 @@
+(ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, P.O. 29 DE SEPTIEMBRE DE 2022)
+CAPITULO IX BIS
+DE LA PARTICIPACION CIUDADANA
+(ADICIONADO, P.O. 29 DE SEPTIEMBRE DE 2022)
+ARTICULO 61 BIS.- Los Ayuntamientos promoverán la participación ciudadana en las políticas públicas municipales.
