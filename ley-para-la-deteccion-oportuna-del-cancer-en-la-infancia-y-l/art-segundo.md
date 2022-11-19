@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO. El ejecutivo del Estado tendrá un plazo de seis meses a partir de la entrada en vigor de la presente Ley, para emitir los reglamentos necesarios y elaborará las guías de atención para el correcto funcionamiento de este ordenamiento.

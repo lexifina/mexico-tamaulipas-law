@@ -1,0 +1,5 @@
+ARTÍCULO CUARTO. La aplicación del presente Decreto se sujetará a la disponibilidad presupuestaria que el Titular del Poder Ejecutivo del Estado disponga en materia de salud para la prevención oportuna del cáncer en la infancia y la adolescencia del Estado de Tamaulipas.
+SALÓN DE SESIONES DEL CONGRESO DEL ESTADO LIBRE Y SOBERANO DE TAMAULIPAS.- Cd. Victoria, Tam., a 19 de octubre del año 2022.- DIPUTADA PRESIDENTA.- ALEJANDRA CÁRDENAS CASTILLEJOS.- Rúbrica.- DIPUTADA SECRETARIA.- MYRNA EDITH FLORES CANTÚ.- Rúbrica.- DIPUTADO SECRETARIO.- JUAN OVIDIO GARCÍA GARCÍA.- Rúbrica."
+Por tanto, mando se imprima, publique, circule y se le dé el debido cumplimiento.
+Dado en la residencia del Poder Ejecutivo, en Victoria, Capital del Estado de Tamaulipas, a los diecinueve días del mes de octubre del año dos mil veintidós.
+ATENTAMENTE.- EL GOBERNADOR CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE TAMAULIPAS.- AMÉRICO VILLARREAL ANAYA.- Rúbrica.- EL SECRETARIO GENERAL DE GOBIERNO.- HÉCTOR JOEL VILLEGAS GONZÁLEZ.- Rúbrica.
