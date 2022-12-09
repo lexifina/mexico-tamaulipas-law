@@ -7,14 +7,17 @@ a) Asistir mediante el personal que designe el Coordinador a las reuniones que l
 b) Realizar investigaciones jurídicas y parlamentarias en apoyo al trabajo de Dictaminación de comisiones, cuando así se lo solicite el Comité;
 (REFORMADO, P.O. 30 DE MAYO DE 2017)
 c) Coordinar el programa de Estancias de Investigación a su cargo;
-(REFORMADO, P.O. 30 DE MAYO DE 2017)
-d) Colaborar con la Secretaría General el diseño, organización e implementación del Curso de Inducción a la Función Legislativa;
+(REFORMADO, P.O. 6 DE DICIEMBRE DE 2022)
+d) Colaborar con la Secretaría General y la Unidad de Profesionalización Parlamentaria en el diseño, organización e implementación del Curso de Inducción a la Función Legislativa;
 e) Efectuar estudios de derecho comparado en los temas relevantes del interés del Congreso del Estado;
 (REFORMADO, P.O. 30 DE MAYO DE 2017)
 f) Dar seguimiento a las reformas constitucionales y de leyes generales que sean concurrentes con el orden jurídico estatal;
-g) Fomentar la celebración de convenios de colaboración e intercambio con organismos académicos, públicos, privados y sociales, locales, nacionales e internacionales;
-h) Instrumentar programas de profesionalización y formación de especialistas en áreas del conocimiento vinculadas con el quehacer parlamentario;
-i) Organizar, promover y participar en cursos, seminarios, congresos, diplomados, foros, coloquios, conferencias y mesas redondas;
+(REFORMADO, P.O. 6 DE DICIEMBRE DE 2022)
+g) En coordinación con la Unidad de Profesionalización Parlamentaria fomentar la celebración de convenios de colaboración e intercambio con organismos académicos, públicos, privados y sociales, locales, nacionales e internacionales;
+(REFORMADO, P.O. 6 DE DICIEMBRE DE 2022)
+h) En colaboración con la Unidad de Profesionalización Parlamentaria instrumentar programas de profesionalización y formación de especialistas en áreas del conocimiento vinculadas con el quehacer parlamentario;
+(REFORMADO, P.O. 6 DE DICIEMBRE DE 2022)
+i) En colaboración con la Unidad de Profesionalización Parlamentaria organizar, promover y participar en cursos, seminarios, congresos, diplomados, foros, coloquios, conferencias y mesas redondas;
 (REFORMADO, P.O. 30 DE MAYO DE 2017)
 j) Impulsar programas editoriales y de difusión de las actividades del Congreso del Estado Libre y Soberano de Tamaulipas, así como convocar a concursos de investigación jurídica y legislativa;
 k) Aportar a los Diputados investigaciones técnicas que contribuyan al mejoramiento de su trabajo legislativo, a través del Comité del Instituto de Investigaciones Parlamentarias; y
