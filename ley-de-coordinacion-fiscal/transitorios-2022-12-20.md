@@ -1,0 +1,4 @@
+P.O. 20 DE DICIEMBRE DE 2022.
+[N. DE E. TRANSITORIOS DEL "DECRETO NO. 65-495 MEDIANTE EL CUAL SE REFORMAN, ADICIONAN Y DEROGAN DIVERSAS DISPOSICIONES DE LA LEY DE HACIENDA PARA EL ESTADO DE TAMAULIPAS Y DE LA LEY DE COORDINACIÓN FISCAL DEL ESTADO DE TAMAULIPAS".]
+ARTÍCULO PRIMERO. El presente Decreto se publicará en el Periódico Oficial del Estado, y entrará en vigor el 1 de enero de 2023.
+ARTÍCULO SEGUNDO. Se derogan todas las disposiciones que se opongan al presente Decreto.
