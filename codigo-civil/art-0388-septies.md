@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 1 DE FEBRERO DE 2023)
+ART. 388 SEPTIES.- En casos excepcionales y plenamente justificados, el Juez que aprobó la incorporación de una niña, niño o adolescente a una familia de acogida podrá autorizar el cambio de residencia a otro Estado, atendiendo a su bienestar y que sea acorde a su proyecto de vida, cuyo seguimiento será realizado por las instituciones públicas encargadas de velar por el interés superior de la niñez. En este último caso se comunicará mediante oficio a la institución competente que deberá efectuar dicho seguimiento por los conductos de Ley.
+Cualquier otra circunstancia relacionada con el lugar de residencia de la niña, niño o adolescente, se resolverá por el Juez competente con intervención del Ministerio Publico.
+En los casos en que no autorice el cambio de residencia de la niña, niño o adolescente, se procederá conforme a lo dispuesto en el segundo párrafo de la fracción II del artículo 388 Duodecies.

@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 1 DE FEBRERO DE 2023)
+ARTÍCULO 25 Quaterdecies.
+1. A fin de acompañar la adaptación de niñas, niños y adolescentes a su nueva familia y entorno, así como conocer la evolución de su desarrollo, el Sistemas (sic) Estatal DIF a través de la Procuraduría de Protección, realizarán un seguimiento de su situación.
+2. Entre las medidas de seguimiento deberán estar los reportes realizados por los profesionales de psicología y trabajo social, donde se aprecie la convivencia familiar y el desarrollo cotidiano de niñas, niños y adolescentes, en su entorno, con una periodicidad de seis meses durante tres años contados a partir de que la sentencia judicial de adopción quede firme, pudiendo ampliar el plazo excepcionalmente en caso de ser necesario, con base en el interés superior de la niñez. La intervención que represente el seguimiento será lo menos invasiva posible a efecto de no afectar el entorno familiar.
