@@ -1,0 +1,1 @@
+ARTÍCULO TERCERO. El Consejo para la Prevención, Tratamiento y Erradicación de la Violencia en el entorno Escolar del Estado de Tamaulipas, deberá instalarse y comenzar sus trabajos sesenta días después a la entrada en vigor de la presente Ley.

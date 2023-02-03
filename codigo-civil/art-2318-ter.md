@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 2 DE FEBRERO DE 2023)
+ART. 2318 TER.- El contrato de hipoteca inversa, es aquel por el cual el pensionario se obliga a pagar periódicamente y en forma vitalicia al pensionista o a su beneficiario que deberá ser su cónyuge, concubina o concubinario de edad igual o superior a los sesenta años de edad, una cantidad de dinero predeterminada, que el pensionista garantizará a través de la hipoteca inversa, en los términos de este Capítulo.

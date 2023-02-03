@@ -1,0 +1,12 @@
+(ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, P.O. 2 DE FEBRERO DE 2023)
+CAPÍTULO IV BIS
+DE LA PARTICIPACIÓN Y DENUNCIA CIUDADANA
+(ADICIONADO, P.O. 2 DE FEBRERO DE 2023)
+ARTICULO 27 BIS.- La Secretaría de Salud promoverá la participación de la sociedad civil en la prevención del tabaquismo y el control de los productos del tabaco, o cualquier dispositivo electrónico similar que contenga o no nicotina, en las siguientes acciones:
+I. Promoción de los espacios 100 por ciento libres de humo de tabaco y emisiones;
+II. Promoción de la salud comunitaria;
+III. Educación para la salud;
+IV. Investigación para la salud y generación de la evidencia científica en materia del control del tabaco;
+V. Difusión de las disposiciones legales en materia del control de los productos del tabaco;
+VI. Coordinación con los consejos nacional y estatales contra las adicciones, y
+VII. Las acciones de auxilio de aplicación de esta Ley como la denuncia ciudadana.

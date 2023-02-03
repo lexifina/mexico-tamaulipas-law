@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 2 DE FEBRERO DE 2023)
+ART. 2318 SEPTIES.- El inmueble hipotecado no podrá ser transmitido por acto inter vivos sin el consentimiento previo del pensionario. El incumplimiento de esta obligación le conferirá el derecho de declarar vencido anticipadamente el total del adeudo y exigible a la fecha, a menos que se constituya la garantía en forma bastante e igual a la anterior en un plazo de seis meses.

@@ -1,0 +1,3 @@
+P.O. 2 DE FEBRERO DE 2023.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. 65-509 MEDIANTE EL CUAL SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES DE LA LEY DE PROTECCIÓN PARA LOS NO FUMADORES DEL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO.- El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado de Tamaulipas.

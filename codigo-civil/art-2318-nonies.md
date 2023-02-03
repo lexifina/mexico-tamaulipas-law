@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 2 DE FEBRERO DE 2023)
+ART. 2318 NONIES.- En caso de incumplimiento del pensionario en las ministraciones pactadas el pensionista estará en condiciones de solicitar la rescisión del contrato y exigir el pago de daños y perjuicios, o en su caso, el pago de la pena pactada. Además, se tendrá la deuda como liquidada y no generará más interés; debiendo el pensionario liberar a su costa el gravamen correspondiente. Para el caso de que se constituya una nueva hipoteca inversa sobre el mismo inmueble, ésta tendrá prelación respecto de la anterior.
