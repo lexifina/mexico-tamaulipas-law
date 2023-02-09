@@ -1,0 +1,5 @@
+P.O. 8 DE FEBRERO DE 2023.
+[N. DE E. TRANSITORIOS DEL "DECRETO NO. 65-515 MEDIANTE EL CUAL SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES DE LA LEY DEL TRABAJO DE LOS SERVIDORES PÚBLICOS DEL ESTADO DE TAMAULIPAS Y DE LA LEY DEL INSTITUTO DE PREVISIÓN Y SEGURIDAD SOCIAL DEL ESTADO DE TAMAULIPAS".]
+ARTÍCULO PRIMERO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+ARTÍCULO SEGUNDO. El Poder Ejecutivo del Estado de Tamaulipas contará con un periodo de 30 días naturales, contados a partir de la entrada en vigor del presente Decreto, para realizar las adecuaciones al Reglamento de las Condiciones Generales de Trabajo.
+ARTÍCULO TERCERO. El Instituto de Previsión y Seguridad Social del Estado de Tamaulipas contará con un periodo de 30 días naturales contados a partir de la entrada en vigor del Reglamento de las Condiciones Generales de Trabajo para expedir los lineamientos que establezcan el procedimiento para garantizar la expedición de las licencias por parte del Instituto.
