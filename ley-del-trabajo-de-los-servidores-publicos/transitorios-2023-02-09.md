@@ -1,0 +1,3 @@
+P.O. 9 DE FEBRERO DE 2023.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. 65-520 MEDIANTE EL CUAL SE ADICIONA LA FRACCIÓN XXII AL ARTÍCULO 33 DE LA LEY DEL TRABAJO DE LOS SERVIDORES PÚBLICOS DEL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. La presente Reforma entrará en vigor al día siguiente al de su publicación en el Periódico Oficial del Estado.
