@@ -1,0 +1,3 @@
+P.O. 22 DE FEBRERO DE 2023.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. 65-540 MEDIANTE EL CUAL SE ADICIONA UN ARTÍCULO 32 TER, A LA LEY DEL TRABAJO DE LOS SERVIDORES PÚBLICOS DEL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
