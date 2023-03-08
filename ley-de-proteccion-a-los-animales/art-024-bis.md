@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 7 DE MARZO DE 2023)
+ARTICULO 24 Bis.- La Secretaría, con el apoyo de los particulares y Asociaciones Protectoras de Animales, impulsará la creación de programas de adiestramiento de perros abandonados para proteger a mujeres víctimas de violencia de género; así como perros para hacer compañía a personas adultas mayores en situación vulnerable y de abandono. Para alcanzar los fines que persigue este artículo, las personas adultas mayores contarán con el apoyo de una persona que tutorizará la adopción.
