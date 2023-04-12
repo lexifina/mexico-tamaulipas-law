@@ -1,0 +1,3 @@
+P.O. 11 DE ABRIL DE 2023.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. 65-555 MEDIANTE EL CUAL SE REFORMAN LOS ARTÍCULOS 47-QUATER, PÁRRAFO SEGUNDO; 144, PÁRRAFO SEGUNDO; Y 146 DEL CÓDIGO PENAL PARA EL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
