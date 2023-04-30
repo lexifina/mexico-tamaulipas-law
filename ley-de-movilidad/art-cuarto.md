@@ -1,0 +1,1 @@
+ARTÍCULO CUARTO. La Secretaría, en un plazo no mayor a 180 días contados a partir de la entrada en vigor de la Presente Ley, deberá publicar el Programa.

@@ -1,0 +1,2 @@
+ARTÍCULO SEGUNDO. Para la adecuada implementación de la Ley de Movilidad del Estado de Tamaulipas que se expide mediante el presente Decreto, las Secretarías: General de Gobierno, de Finanzas, de Administración, de Desarrollo Urbano y Medio Ambiente, Contraloría, así como los Ayuntamientos deberán considerar las previsiones de recursos humanos, materiales y financieros a que haya lugar.
+La implementación de la Ley de Movilidad del Estado de Tamaulipas que se expide mediante el presente Decreto, se realizará conforme al presupuesto asignado en cada ejercicio fiscal.

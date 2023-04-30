@@ -1,0 +1,1 @@
+ARTÍCULO TERCERO. El Gobierno del Estado y los Ayuntamientos deberán efectuar, en el ámbito de sus respectivas competencias, los ajustes correspondientes en sus reglamentos, bandos y demás normas administrativas, en un plazo que no exceda 90 días a partir de la entrada en vigor de la presente Ley.
