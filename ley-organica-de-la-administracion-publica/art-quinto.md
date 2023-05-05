@@ -1,0 +1,2 @@
+ARTÍCULO QUINTO. Los procesos administrativos derivados de la reorganización de las Dependencias o Entidades previstas en la presente ley deberán realizarse a partir de la entrada en vigor de este Decreto y concluirán (sic) más tardar a los noventa días siguientes.
+Los asuntos de las Dependencias y Entidades que se crean y/o se fusionan, que se encuentren en trámite a la entrada en vigor del presente Decreto, deberán continuar hasta su conclusión a cargo de la dependencia conforme al presente Decreto resulte competente.

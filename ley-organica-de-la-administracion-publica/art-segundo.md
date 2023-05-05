@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO. Se abroga la Ley Orgánica de la Administración Pública del Estado de Tamaulipas, expedida en el Decreto No. LXII-1171 del 26 de septiembre de 2016, publicada en el Periódico Oficial del Estado Anexo al número 115 de fecha 27 de septiembre del mismo año.

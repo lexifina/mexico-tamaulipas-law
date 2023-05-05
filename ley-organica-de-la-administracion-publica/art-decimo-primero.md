@@ -1,0 +1,1 @@
+ARTÍCULO DÉCIMO PRIMERO. Se instruye a la Secretaría de Administración, de Finanzas y a la Contraloría Gubernamental a realizar las adecuaciones presupuestales, materiales y de recursos humanos, a efecto de dar cumplimiento a lo establecido en el presente Decreto.

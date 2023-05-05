@@ -1,0 +1,1 @@
+ARTÍCULO TERCERO. Para el cumplimiento de esta Ley, el titular del Ejecutivo del Estado, dispondrá de las acciones necesarias para reorganizar la estructura de las Dependencias y Entidades mediante los procedimientos aplicables.

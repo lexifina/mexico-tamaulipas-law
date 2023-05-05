@@ -1,0 +1,1 @@
+ARTÍCULO DÉCIMO. Cuando en una ley, reglamento, decreto, acuerdo, o disposición general, refiera a las Dependencias y organismos públicos descentralizados, que se fusionan y extinguen, se entenderán que se refieren a las Dependencias que se crean por este Decreto.

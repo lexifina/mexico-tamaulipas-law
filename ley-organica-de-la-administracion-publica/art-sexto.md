@@ -1,0 +1,1 @@
+ARTÍCULO SEXTO. La transferencia que con motivo de la expedición de la presente ley deba realizarse de una dependencia a otra, incluirá los recursos presupuestales, programas y calendarios financieros asignados a las Dependencias y Entidades que se crean y fusionan, los cuales se incorporan a las nuevas Dependencias.

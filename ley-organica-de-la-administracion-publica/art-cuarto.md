@@ -1,0 +1,1 @@
+ARTÍCULO CUARTO. Los recursos humanos, materiales y financieros adscritos a las secretarías de Desarrollo Rural y de Pesca y Acuacultura, deberán ser transferidos a la Secretaría de Desarrollo Rural, Pesca y Acuacultura.
