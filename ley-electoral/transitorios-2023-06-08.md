@@ -1,0 +1,5 @@
+P.O. 8 DE JUNIO DE 2023.
+[N. DE E. TRANSITORIOS DEL "DECRETO NO. 65-591 MEDIANTE EL CUAL SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES DE LA LEY ELECTORAL DEL ESTADO DE TAMAULIPAS EN MATERIA DE REPRESENTACIÓN EFECTIVA DE GRUPOS VULNERABLES EN LA ASIGNACIÓN DE CANDIDATURAS A PUESTOS DE ELECCIÓN POPULAR".]
+ARTÍCULO PRIMERO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+ARTÍCULO SEGUNDO. Con la oportunidad debida para su aplicación en el proceso electoral ordinario 2023-2024, el Instituto Electoral de Tamaulipas deberá emitir los lineamientos para el procedimiento de registro de candidaturas a cargos de elección popular de los grupos vulnerables a que refiere la presente reforma, y la supervisión de su cumplimiento. Por ende, una vez iniciado el proceso electoral, y en atención a los principios de seguridad jurídica y certeza, no se podrán emitir lineamientos al respecto.
+ARTÍCULO TERCERO. Se derogan todas aquellas disposiciones que se opongan a lo dispuesto en el presente Decreto.
