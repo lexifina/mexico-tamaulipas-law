@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 13 DE JUNIO DE 2023)
+ARTICULO 92 TER.- La publicación y administración de la Gaceta Municipal corresponde al Secretario del Ayuntamiento, quien deberá integrar y conservar el archivo de las gacetas publicadas, los originales de los documentos y publicar de oficio o por instrucciones del Ayuntamiento, la fe de erratas que en cada caso proceda.
+Se publicará cuando menos cada vez que sesione ordinariamente el Ayuntamiento con los días de anticipación a la misma que los reglamentos municipales señalen. Podrá ser publicada de manera impresa y/o electrónica en el portal de Internet del Municipio, de acuerdo a la infraestructura informática y posibilidades con las que cuente el Municipio.
+En caso de discrepancia entre el contenido publicado en el portal de Internet propiedad del Municipio y la versión impresa, prevalecerá esta última.
+En ningún caso se publicará documento alguno, cualquiera que sea su naturaleza jurídica, si no está debidamente firmado y plenamente comprobada su procedencia y autenticidad.
