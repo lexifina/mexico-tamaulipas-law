@@ -1,0 +1,3 @@
+P.O. 15 DE JUNIO DE 2023.
+[N. DE E. TRANSITORIO DEL "DECRETO No. 65-517 MEDIANTE EL CUAL SE ADICIONAN LOS PÁRRAFOS 4, 5 Y 6 AL ARTÍCULO 22, DE LA LEY DEL INSTITUTO DE PREVISIÓN Y SEGURIDAD SOCIAL DEL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
