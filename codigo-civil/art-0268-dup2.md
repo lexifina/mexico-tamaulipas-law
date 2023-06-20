@@ -1,6 +1,0 @@
-(REFORMADA SU DENOMINACIÓN. P.O. 24 DE JUNIO DE 2008)
-TITULO IV
-DEL PARENTESCO, DE LOS ALIMENTOS Y DE LA VIOLENCIA FAMILIAR
-CAPITULO I
-DEL PARENTESCO
-ART. 268 (sic).- La ley no reconoce más parentesco que el de consanguinidad, el de afinidad y el civil.
