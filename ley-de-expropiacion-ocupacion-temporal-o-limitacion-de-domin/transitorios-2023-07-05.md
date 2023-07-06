@@ -1,0 +1,3 @@
+P.O. 5 DE JULIO DE 2023.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. 65-592 MEDIANTE EL CUAL SE REFORMA EL ARTÍCULO 12 DE LA LEY DE EXPROPIACIÓN, OCUPACIÓN TEMPORAL O LIMITACIÓN DE DOMINIO PARA EL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
