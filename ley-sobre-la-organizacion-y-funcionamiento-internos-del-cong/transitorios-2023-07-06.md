@@ -1,0 +1,4 @@
+P.O. 6 DE JULIO DE 2023.
+[N. DE E. TRANSITORIOS DEL "DECRETO No. 65-614 MEDIANTE EL CUAL SE ADICIONA EL ARTÍCULO 66 SEXIES A LA LEY SOBRE LA ORGANIZACIÓN Y FUNCIONAMIENTO INTERNOS DEL CONGRESO DEL ESTADO LIBRE Y SOBERANO DE TAMAULIPAS".]
+ARTÍCULO PRIMERO. El presente Decreto entrará en vigor a partir de su expedición y será publicado inmediatamente en el Periódico Oficial del Estado.
+ARTÍCULO SEGUNDO. Las personas que actualmente fungen como titulares de la Secretaría General, así como de las Unidades, Jefaturas de Departamento, Jefaturas de Unidad y Auxiliares de Dictaminación, que conforman la estructura orgánica del Poder Legislativo, previstas en esta Ley, reglamentos respectivos y cualquier otro instrumento jurídico, continuarán en su cargo hasta en tanto no sean removidos en los términos del artículo 66 SEXIES de la ley interna de este Poder Legislativo.

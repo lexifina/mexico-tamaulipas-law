@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 6 DE JULIO DE 2023)
+ARTICULO 66 SEXIES.
+1. A las personas titulares de la Secretaría General, así como de las Unidades, Jefaturas de Departamento, Jefaturas de Unidad y Auxiliares de Dictaminación, que conforman la estructura orgánica del Poder Legislativo, previstas en esta Ley, reglamentos respectivos y cualquier otro instrumento jurídico, se les garantizará su permanencia en el cargo para el cual fueron nombrados por el tiempo que fueron designados o por lo menos, hasta por el término de la Legislatura en la cual fueron designados.
+2. Todos los nombramientos de los titulares señalados en este artículo, a excepción del Secretario General, serán aprobados por la mayoría ponderada de los integrantes de la Junta de Coordinación Política del Congreso del Estado, en reunión donde se encuentren presentes la totalidad de los integrantes de dicho órgano parlamentario.
+3. Las personas servidoras públicas referidas en el numeral 1 del presente artículo, únicamente podrán ser removidas de su cargo por el voto de las dos terceras partes de los miembros del Congreso.
