@@ -1,0 +1,5 @@
+(NOTA: EL 19 DE NOVIEMBRE DE 2024, EL PLENO DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN, EN EL RESOLUTIVO TERCERO DE LA SENTENCIA DICTADA AL RESOLVER LA ACCIÓN DE INCONSTITUCIONALIDAD 177/2023 Y SU ACUMULADA 178/2023, DECLARÓ LA INVALIDEZ DEL DECRETO 65-619, POR EL QUE SE ADICIONA ESTE ARTÍCULO, LA CUAL SURTIÓ EFECTOS EL 26 DE NOVIEMBRE DE 2024, DE ACUERDO A LAS CONSTANCIAS QUE OBRAN EN LA SECRETARÍA GENERAL DE ACUERDOS DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN. DICHA SENTENCIA PUEDE SER CONSULTADA EN LA DIRECCIÓN ELECTRÓNICA http://www.scjn.gob.mx/).
+(ADICIONADO, P.O. 8 DE JULIO DE 2023)
+ARTICULO 28 QUATER.
+1. La Junta de Gobierno, acorde a lo dispuesto en la Constitución Política del Estado de Tamaulipas, es el órgano de dirección política del Poder Legislativo y la expresión de la pluralidad del Congreso.
+2. En la Junta de Gobierno se impulsan entendimientos y convergencias políticas con las instancias y órganos que resulten necesarios para alcanzar acuerdos, a fin de que el Pleno esté en condiciones de adoptar las decisiones que constitucional y legalmente le corresponden.
