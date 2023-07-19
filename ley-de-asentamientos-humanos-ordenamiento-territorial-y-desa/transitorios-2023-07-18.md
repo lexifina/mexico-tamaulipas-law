@@ -1,0 +1,4 @@
+P.O. 18 DE JULIO DE 2023.
+[N. DE E. TRANSITORIOS DEL "DECRETO No. 65-603 MEDIANTE EL CUAL SE REFORMAN Y SE ADICIONAN DIVERSAS DISPOSICIONES DE LA LEY DE ASENTAMIENTOS HUMANOS, ORDENAMIENTO TERRITORIAL Y DESARROLLO URBANO DEL ESTADO DE TAMAULIPAS".]
+ARTÍCULO PRIMERO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+ARTÍCULO SEGUNDO. Los municipios del Estado deberán implementar los mecanismos necesarios para regularizar los asentamientos humanos de usos habitacionales, comerciales, de servicios, industriales, espacios abiertos e infraestructura, de acuerdo a las competencias establecidas en la Ley de Asentamientos Humanos, Ordenamiento Territorial y Desarrollo Urbano del Estado de Tamaulipas, estableciendo plazos necesarios para tales efectos, pudiendo abstenerse de imponer sanciones económicas durante estos periodos.
