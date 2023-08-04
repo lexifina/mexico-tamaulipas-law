@@ -11,8 +11,8 @@ I. Innovación;
 II. Ciencia; y
 (ADICIONADA, P.O. 14 DE ABRIL DE 2020)
 III. Tecnología.
-(REFORMADO, P.O. 15 DE OCTUBRE DE 2020)
-La tramitación de este Premio se hará ante el Consejo Tamaulipeco de Ciencia y Tecnología, cuyo titular formará parte del Consejo de Premiación, el cual será presidido por quien ostente la Presidencia de la Comisión de Innovación, Ciencia y Tecnología del Congreso del Estado; así mismo, lo integrarán también las o los titulares de las Secretarías de Bienestar Social, de Desarrollo Económico, de Educación, y la Rectoría de la Universidad Autónoma de Tamaulipas.
+(REFORMADO, P.O. 3 DE AGOSTO DE 2023)
+La tramitación de este Premio se hará ante el Consejo Tamaulipeco de Ciencia y Tecnología, cuyo titular presidirá el Consejo de Premiación, el cual se integrará, además, por las o los titulares de las Secretarías de Bienestar Social, de Desarrollo Económico, de Educación, de la Rectoría de la Universidad Autónoma de Tamaulipas, así como por quien ostente la Presidencia de la Comisión de Innovación, Ciencia y Tecnología del Congreso del Estado.
 (ADICIONADO, P.O. 14 DE ABRIL DE 2020)
 Cualquier persona podrá presentar candidaturas de acuerdo con los lineamientos de la Convocatoria.
 (REFORMADO, P.O. 15 DE OCTUBRE DE 2020)
