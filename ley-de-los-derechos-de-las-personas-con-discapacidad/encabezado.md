@@ -1,5 +1,4 @@
 LEY DE LOS DERECHOS DE LAS PERSONAS CON DISCAPACIDAD DEL ESTADO DE TAMAULIPAS
-[N. DE E. LA FE DE ERRATAS PUBLICADA EN EL P.O. EL 24 DE AGOSTO DE 2023 NO APLICA AL ARTICULADO DEL DECRETO PUBLICADO EN EL P.O. DE 11 DE JULIO DE 2023.]
 Ley publicada en el Número 115 del Periódico Oficial del Estado de Tamaulipas, el martes 27 de septiembre de 2016.
 EGIDIO TORRE CANTÚ, Gobernador Constitucional del Estado Libre y Soberano de Tamaulipas, a sus habitantes hace saber:
 Que el Honorable Congreso del Estado, ha tenido a bien expedir el siguiente Decreto:
