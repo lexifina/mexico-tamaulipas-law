@@ -17,7 +17,8 @@ VII.- La víctima haya sido incomunicada, cualquiera que sea el tiempo previo a 
 VIII.- La víctima se haya encontrado en un estado de indefensión, entendiéndose este como la situación de desprotección real o incapacidad de defensa, causada por un impedimento físico, psicológico o material para solicitar el auxilio, incluyendo factores externos que inhiban su capacidad de defensa o conciencia, como el estado de somnolencia, alcoholemia, consumo de fármacos o drogas, ya sea voluntario o involuntario; o
 (REFORMADA Y REUBICADA [N. DE E. ANTES FRACCIÓN VII], P.O. 13 DE JUNIO DE 2023)
 IX.- El cuerpo o restos de la víctima sean expuestos, exhibidos, depositados, arrojados o enterrados en un lugar público o de libre concurrencia.
-A quien cometa el delito de feminicidio se le impondrán de cuarenta a cincuenta años de prisión y de quinientos a mil días multa.
+(REFORMADO, P.O. 22 DE SEPTIEMBRE DE 2023)
+A quien cometa el delito de feminicidio se le impondrán de cuarenta a sesenta años de prisión y de quinientos a mil días multa.
 Además de las sanciones descritas en el presente artículo, el sujeto activo perderá todos los derechos con relación a la víctima, incluidos los de carácter sucesorio.
 (REFORMADO, P.O. 13 DE JUNIO DE 2023)
 Cuando el sujeto activo tuviere descendencia con la víctima y estos sean menores de edad, además de las penas previstas en este artículo, se le condenará a la pérdida de la patria potestad a fin de salvaguardar el interés superior de la niñez y garantizar su derecho a vivir en un entorno seguro, afectivo y libre de violencia, de conformidad con lo previsto en el artículo 387 del Código Civil para el Estado de Tamaulipas. Adicionalmente, se ordenará a las autoridades competentes la protección, prestación de servicios de ayuda inmediata, asistencia, atención y reparación integral del daño de las niñas, niños y adolescentes que hubiesen quedado en situación de orfandad por feminicidio.

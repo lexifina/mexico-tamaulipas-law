@@ -1,0 +1,3 @@
+P.O. 22 DE SEPTIEMBRE DE 2023.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. 65-627 POR EL QUE SE REFORMAN LOS ARTÍCULOS 46, PÁRRAFO PRIMERO Y 337 BIS, PÁRRAFO SEGUNDO, DEL CÓDIGO PENAL PARA EL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
