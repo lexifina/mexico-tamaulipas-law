@@ -1,0 +1,3 @@
+P.O. 12 DE OCTUBRE DE 2023.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. 65-605 MEDIANTE EL CUAL SE REFORMA EL PÁRRAFO ÚNICO, Y SE ADICIONA UN PÁRRAFO SEGUNDO A LA FRACCIÓN VI, AL ARTÍCULO 17 DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado de Tamaulipas.
