@@ -1,0 +1,4 @@
+P.O. 25 DE OCTUBRE DE 2023.
+[N. DE E. TRANSITORIOS DEL "DECRETO NO. 65-663 MEDIANTE EL CUAL SE ADICIONAN LA FRACCIÓN XIV BIS AL ARTÍCULO 4; Y EL NUMERAL 4 AL ARTÍCULO 72, DEL CÓDIGO PARA EL DESARROLLO SUSTENTABLE DEL ESTADO DE TAMAULIPAS; Y SE REFORMAN LAS FRACCIONES XXII Y XXIII; Y SE ADICIONA LA FRACCIÓN XXIV AL ARTÍCULO 19, DE LA LEY DE CAMBIO CLIMÁTICO PARA EL ESTADO DE TAMAULIPAS".]
+ARTÍCULO PRIMERO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+ARTÍCULO SEGUNDO. Las capacitaciones obligatorias de todas y todos los servidores públicos en materia de medio ambiente, con perspectiva de desarrollo sostenible y con especial énfasis en cambio climático, se implementarán de manera progresiva de conformidad a la capacidad presupuestal, técnica y operativa de las dependencias y municipios.
