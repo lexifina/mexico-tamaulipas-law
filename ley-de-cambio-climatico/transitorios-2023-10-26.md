@@ -1,0 +1,3 @@
+P.O. 26 DE OCTUBRE DE 2023.
+[N. DE E. TRANSITORIO DEL "DECRETO No. 65-669 MEDIANTE EL CUAL SE ADICIONA UN PÁRRAFO SEGUNDO A LA FRACCIÓN IV, DEL ARTÍCULO 25, DE LA LEY DE CAMBIO CLIMÁTICO PARA EL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
