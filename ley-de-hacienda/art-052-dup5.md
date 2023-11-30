@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 27 DE NOVIEMBRE DE 2023)
+Artículo 52 Duovicies. Este impuesto será calculado por las Empresas de Redes de Transporte y enterado a la Secretaría de Finanzas de forma mensual dentro de los primeros 5 días del mes siguiente en que generen el ingreso, anexando carta bajo protesta de decir verdad, que el impuesto enterado corresponde a las tarifas efectivamente cobradas a sus usuarios dentro del Estado de Tamaulipas.

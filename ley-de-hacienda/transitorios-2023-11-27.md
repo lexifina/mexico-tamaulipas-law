@@ -1,0 +1,10 @@
+P.O. 27 DE NOVIEMBRE DE 2023.
+[N. DE E. TRANSITORIOS DEL "DECRETO NO. 65-710 MEDIANTE EL CUAL SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES DE LA LEY DE TRANSPORTE DEL ESTADO DE TAMAULIPAS Y DE LA LEY DE HACIENDA PARA EL ESTADO DE TAMAULIPAS, EN MATERIA DE SERVICIO DE TRANSPORTE EJECUTIVO".]
+ARTÍCULO PRIMERO. El presente Decreto será publicado (sic) Periódico Oficial del Estado y entrará en vigor el día primero de enero del año dos mil veinticuatro.
+ARTÍCULO SEGUNDO. A partir de la publicación del presente decreto, el Ejecutivo del Estado, en un término no mayor a 90 días naturales, realizará las modificaciones al Reglamento de la Ley y a todas aquellas disposiciones normativas que resulten necesarias para efecto de dar cumplimiento al presente Decreto.
+ARTÍCULO TERCERO. Las Empresas de Redes de Transporte deberán cumplir con el registro previsto en el artículo 35 Ter, a más tardar a los treinta días naturales de la entrada en vigor del presente Decreto.
+ARTÍCULO CUARTO. Las Empresas de Redes de Transporte deberán cumplir con la entrega del padrón previsto en el artículo 35 Sexies, fracción V, a más tardar los primeros cinco días del mes siguiente de su registro ante la Secretaría General de Gobierno.
+ARTÍCULO QUINTO. Las Empresas de Redes de Transporte que cuenten con registro vigente para operar en el Estado deberán realizar su registro anual al vencimiento de éste, conforme a las disposiciones previstas en el presente Decreto.
+ARTÍCULO SEXTO. Se instruye a la Secretaría de Finanzas para que en un plazo de 30 días naturales, a partir de la publicación del presente decreto emita los lineamientos de coordinación a efecto de dar cumplimiento a la recaudación prevista en el artículo 35 Sexies, fracción VII, del presente Decreto.
+ARTÍCULO SÉPTIMO. Para efecto del Certificado de Persona Operadora Titular o Adhesiva y Constancias de Vehículo Registrado, los conductores y propietarios deberán realizar la solicitud de emisión de estos en un plazo que no exceda de 30 días a partir de la entrada en vigor del presente Decreto.
+ARTÍCULO OCTAVO. Se derogan todas las disposiciones jurídicas y administrativas que se opongan al presente Decreto.
