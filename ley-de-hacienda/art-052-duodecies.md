@@ -1,6 +1,6 @@
-(ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, P.O. 18 DE DICIEMBRE DE 2019)
+(REFORMADA SU DENOMINACIÓN, P.O. 20 DE DICIEMBRE DE 2023)
 CAPITULO VII
-DEL IMPUESTO SOBRE LA ENAJENACIÓN DE BEBIDAS CON CONTENIDO ALCOHÓLICO Y TABACOS LABRADOS
+DEL IMPUESTO SOBRE LA ENAJENACIÓN DE BEBIDAS CON CONTENIDO ALCOHÓLICO
 (NOTA: EL 6 DE JULIO DE 2023 EL PLENO DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN, EN LOS APARTADOS VII Y VIII, ASÍ COMO EN EL RESOLUTIVO CUARTO DE LA SENTENCIA DICTADA AL RESOLVER LA CONTROVERSIA CONSTITUCIONAL 21/2020, DECLARÓ LA INVALIDEZ DE LA PORCIÓN NORMATIVA DEL PÁRRAFO PRIMERO DE ESTE ARTÍCULO INDICADA CON MAYÚSCULAS, LA CUAL SURTIÓ EFECTOS EL 14 DE JULIO DE 2023 DE ACUERDO A LAS CONSTANCIAS QUE OBRAN EN LA SECRETARÍA GENERAL DE ACUERDOS DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN. DICHA SENTENCIA PUEDE SER CONSULTADA EN LA DIRECCIÓN ELECTRÓNICA http://www.scjn.gob.mx/).
 (ADICIONADO, P.O. 18 DE DICIEMBRE DE 2019)
 Artículo 52 Duodecies. Es objeto de este impuesto la venta final de bebidas con contenido alcohólico en envase cerrado Y TABACOS LABRADOS, llevada a cabo en territorio del Estado de Tamaulipas.
@@ -10,6 +10,8 @@ Se considerarán bebidas con contenido alcohólico Y TABACOS LABRADOS aquellas d
 I.- Para los efectos de éste impuesto se entiende por bebidas con contenido alcohólico Y TABACOS LABRADOS, de acuerdo con lo siguiente:
 (NOTA: EL 6 DE JULIO DE 2023 EL PLENO DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN, EN LOS APARTADOS VII Y VIII, ASÍ COMO EN EL RESOLUTIVO CUARTO DE LA SENTENCIA DICTADA AL RESOLVER LA CONTROVERSIA CONSTITUCIONAL 21/2020, DECLARÓ LA INVALIDEZ DEL INCISO 1) DE LA FRACCIÓN I DE ESTE ARTÍCULO INDICADO CON MAYÚSCULAS, LA CUAL SURTIÓ EFECTOS EL 14 DE JULIO DE 2023 DE ACUERDO A LAS CONSTANCIAS QUE OBRAN EN LA SECRETARÍA GENERAL DE ACUERDOS DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN. DICHA SENTENCIA PUEDE SER CONSULTADA EN LA DIRECCIÓN ELECTRÓNICA http://www.scjn.gob.mx/).
 1) BEBIDAS ALCOHÓLICAS: LAS QUE A LA TEMPERATURA DE 15° CENTÍGRADOS, TENGAN UNA GRADUACIÓN ALCOHÓLICA DE MÁS DE 3° G.L., HASTA 55° G.L., INCLUYENDO EL AGUARDIENTE Y LOS CONCENTRADOS DE BEBIDAS ALCOHÓLICAS, AÚN CUANDO TENGAN UNA GRADUACIÓN ALCOHÓLICA MAYOR.
+(ADICIONADO, P.O. 20 DE DICIEMBRE DE 2023)
+1.1) Bebidas alcohólicas: Las que a la temperatura de 15° centígrados, tengan una graduación alcohólica de más de 3° G.L., hasta 55° G.L., incluyendo el aguardiente y los concentrados de bebidas alcohólicas, aun cuando tengan una graduación alcohólica mayor, con excepción de la cerveza en todas sus presentaciones y el aguamiel y los productos de su fermentación, cuyo gravamen se encuentra expresamente reservado al Congreso de la Unión, en términos del artículo 73, fracción XXIX, numeral 5, incisos e) y g) de la Constitución Política de los Estados Unidos Mexicanos.
 2) Bebidas refrescantes: Las elaboradas con un mínimo de 50% a base de vino de mesa, producto de la fermentación natural de frutas, pudiendo adicionar agua, bióxido de carbono, agua carbonatada, jugo de frutas, extracto de frutas, aceites esenciales, ácido cítrico, azúcar, ácido benzoico o ácido servicio o sus sales con conservadores, así como aquellas que se elaboran de destilados alcohólicos diversos de los antes señalados.
 3) Bebidas alcohólicas a granel: Las que se encuentren envasadas en recipientes cuya capacidad exceda a 5000 mililitros.
 4) Alcohol: La solución acuosa de etanol con las impurezas que la acompañan, con graduación mayor de 55° G.L., a temperatura de 15° centígrados.

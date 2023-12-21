@@ -1,0 +1,3 @@
+P.O. 20 DE DICIEMBRE DE 2023.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. 65-744 MEDIANTE EL CUAL SE REFORMAN DIVERSAS DISPOSICIONES DE LA LEY DEL PERIÓDICO OFICIAL DEL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
