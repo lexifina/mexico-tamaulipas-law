@@ -1,0 +1,1 @@
+ARTÍCULO SEXTO. El Poder Ejecutivo, a través del Instituto de la Juventud de Tamaulipas, en un plazo de noventa días a partir de la entrada en vigor de la presente Ley, deberá expedir el Reglamento del Consejo Tamaulipeco de la Juventud.
