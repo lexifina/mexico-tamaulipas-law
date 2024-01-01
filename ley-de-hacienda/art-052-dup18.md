@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 23 DE DICIEMBRE DE 2023)
+Artículo 52 Quintricies.- Para efectos de lo establecido en la Sección I de este Capítulo, la tarifa impositiva tendrá una exención equivalente a 5.5 veces el valor diario de la Unidad de Medida y Actualización (UMA) vigente por tonelada emitida de bióxido de carbono equivalente (tCO2e), que incluye los compuestos y gases establecidos en el artículo 52 Quinvicies, quedando el cobro en 3 UMA por (tCO2e).
