@@ -13,11 +13,17 @@ c) Los parientes colaterales consanguíneos o afines hasta el cuarto grado;
 d) Adoptantes o adoptados; y
 (ADICIONADO, P.O. 21 DE ABRIL DE 2017)
 e) El incapaz sobre el que se es tutor o curador.
-(REFORMADO, P.O. 23 DE JUNIO DE 2016)
-A quien cometa el delito de violencia familiar se le impondrá de seis meses a cuatro años de prisión y perderá el derecho de pensión alimenticia. Asimismo, se le sujetará a tratamiento psicológico especializado y estará obligado al pago de la reparación del daño de las víctimas.
-(ADICIONADO, P.O. 12 DE JULIO DE 2018)
-Cuando se cometa en perjuicio de un menor de doce años, se impondrá al responsable la pena de uno a cinco años de prisión.
+(ADICIONADO, P.O. 10 DE ENERO DE 2024)
+Para los efectos de este artículo, se entenderán por tipos de maltrato los previstos por el artículo 3, de la Ley de Prevención de la Violencia Familiar del Estado de Tamaulipas.
+(REFORMADO, P.O. 10 DE ENERO DE 2024)
+A quien cometa el delito de violencia familiar se le impondrá de dos a siete años de prisión y perderá el derecho de pensión alimenticia. Asimismo, se le sujetará a tratamiento psicológico especializado y estará obligado al pago de la reparación del daño de las víctimas
+(ADICIONADO, P.O. 10 DE ENERO DE 2024)
+Si además del delito de violencia familiar resultase cometido otro, se aplicarán las reglas del concurso.
+(ADICIONADO, P.O. 10 DE ENERO DE 2024)
+Cuando la violencia se cometa en presencia de niñas, niños y adolescentes o familiares, la pena se aumentará en una mitad.
+(REFORMADO, P.O. 10 DE ENERO DE 2024)
+Cuando se cometa en perjuicio de un menor de doce años, se impondrá al responsable la pena de tres a nueve años de prisión.
 (ADICIONADO, P.O. 12 DE JULIO DE 2018)
 Si el responsable fuere ascendiente o tutor del ofendido, será condenado a la pérdida, limitación o suspensión de la patria potestad, según las circunstancias del caso, a juicio del juez.
-(ADICIONADO, P.O. 22 DE NOVIEMBRE DE 2020)
-Si la víctima se encuentra en estado de embarazo, la pena se incrementará hasta en una mitad.
+(REFORMADO, P.O. 10 DE ENERO DE 2024)
+Si la víctima se encuentra en estado de embarazo, o fuera persona adulta mayor o persona que no pueda entender el significado del hecho o de resistirlo, la pena se incrementará hasta en una mitad.
