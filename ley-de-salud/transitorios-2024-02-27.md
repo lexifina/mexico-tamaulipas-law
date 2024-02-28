@@ -1,0 +1,3 @@
+P.O. 27 DE FEBRERO DE 2024.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. 65-820 MEDIANTE EL CUAL SE REFORMAN LAS FRACCIONES II Y III Y SE ADICIONA LA FRACCIÓN IV AL ARTÍCULO 33 DE LA LEY DE SALUD PARA EL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado de Tamaulipas.
