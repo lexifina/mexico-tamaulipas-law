@@ -1,0 +1,1 @@
+ARTÍCULO QUINTO. Los trámites y asuntos que se encuentren en curso al momento de la entrada en vigor de la presente Ley se desahogarán y concluirán, de conformidad con las disposiciones vigentes al momento de su inicio.

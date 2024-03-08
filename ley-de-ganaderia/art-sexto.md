@@ -1,0 +1,1 @@
+ARTÍCULO SEXTO. Se exceptuará a los productores que se encuentren inscritos en el registro general de fierros de herrar, a la entrada en vigor de la presente Ley, por lo que hace a verificar que los fierros de herrar no sean iguales o semejantes a otros ya autorizados en el Estado.

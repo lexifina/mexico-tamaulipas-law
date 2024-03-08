@@ -1,0 +1,1 @@
+ARTÍCULO CUARTO. Las leyes estatales que se relacionen con la debida aplicación de la presente Ley deberán ser armonizadas con la misma en un periodo no mayor a dos años a partir de su entrada en vigor.

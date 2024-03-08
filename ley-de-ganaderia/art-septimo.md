@@ -1,0 +1,1 @@
+ARTÍCULO SÉPTIMO. Los Ayuntamientos deberán efectuar, en el ámbito de sus respectivas competencias, los ajustes correspondientes en sus reglamentos, bandos y demás normas administrativas aplicables, en un plazo no mayor a 180 días naturales a partir de la entrada en vigor de la presente Ley.

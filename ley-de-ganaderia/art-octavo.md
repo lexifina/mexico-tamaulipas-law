@@ -1,0 +1,1 @@
+ARTÍCULO OCTAVO. Las erogaciones que, en su caso, se generen con motivo de la entrada en vigor de la presente Ley, deberán cubrirse con cargo al presupuesto aprobado, por lo que no se requerirán de ampliaciones presupuestarias para el presente ejercicio fiscal.
