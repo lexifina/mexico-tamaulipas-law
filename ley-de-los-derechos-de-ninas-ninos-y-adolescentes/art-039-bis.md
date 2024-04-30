@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 29 DE ABRIL DE 2024)
+ARTÍCULO 39 BIS.
+Las niñas, niños y adolescentes tienen derecho a que no se violente el ejercicio del juego y sano esparcimiento con la introducción de juguetes bélicos en sus entornos familiares y escolares, que atenten a sus condiciones de bienestar y el libre desarrollo de su personalidad.
+Para ello, la familia deberá garantizar la no adquisición de dichos juguetes con características bélicas y realizar las acciones necesarias para que las niñas, niños y adolescentes solo tengan acceso a juguetes que ayuden a estimular la mente y despierten el respeto por los seres vivos, la sana competencia, la camaradería, la lealtad, el trabajo en equipo, el respeto del adversario, la comprensión y la tolerancia con los demás y el entendimiento entre las personas, dentro de un espíritu de paz y fraternidad.
