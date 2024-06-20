@@ -12,10 +12,10 @@ VIII.- Conocer y consultar su resumen clínico y solicitar copia del mismo;
 IX.- Elegir una posición para el trabajo de parto y el parto, que le resulten más convenientes para ella y el producto del embarazo;
 (REFORMADA, P.O. 2 DE NOVIEMBRE DE 2010)
 X.- Recibir atención sensible con su sistema de valores y de creencias;
-(REFORMADA, P.O. 2 DE NOVIEMBRE DE 2010)
-XI.- Ser informada sobre los procedimientos de orientación y quejas con relación a la prestación a los servicios de salud; y
-(REFORMADA, P.O. 24 DE SEPTIEMBRE DE 2013)
-XII.- Ser informada y acceder al examen de VIH, a fin de prevenir la salud de los infantes desde su gestación, siendo confidencial el resultado de dicho examen. El acceso al diagnóstico de VIH deberá tener carácter de prioritario e inmediato, es decir, en el primer contacto que la mujer tenga con los servicios de salud. En caso de que el examen de VIH resultara positivo, la mujer tendrá derecho a recibir la información necesaria para procurar su salud y prevenir la transmisión perinatal del VIH durante el embarazo, parto o cesárea y lactancia. Tanto ella como el infante tendrán acceso prioritario al tratamiento antiretroviral más adecuado para su caso concreto;
+(REFORMADA, P.O. 19 DE JUNIO DE 2024)
+XI.- Ser informada sobre los procedimientos de orientación y quejas con relación a la prestación a los servicios de salud y telesalud; y
+(REFORMADA, P.O. 19 DE JUNIO DE 2024)
+XII.- Ser informada y acceder al examen de VIH, a fin de prevenir la salud de los infantes desde su gestación, siendo confidencial el resultado de dicho examen. El acceso al diagnóstico de VIH deberá tener carácter de prioritario e inmediato, es decir, en el primer contacto que la mujer tenga con los servicios de salud o telesalud. En caso de que el examen de VIH resultara positivo, la mujer tendrá derecho a recibir la información necesaria para procurar su salud y prevenir la transmisión perinatal del VIH durante el embarazo, parto o cesárea y lactancia. Tanto ella como el infante tendrán acceso prioritario al tratamiento antiretroviral (sic) más adecuado para su caso concreto;
 (REFORMADA, P.O. 14 DE ABRIL DE 2020)
 XIII.- La mujer recibirá la información necesaria y los medios para acceder a la sustitución de lactancia materna oportunamente;
 (REFORMADA, P.O. 14 DE ABRIL DE 2020)

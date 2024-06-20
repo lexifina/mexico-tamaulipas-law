@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 14 DE ABRIL DE 2020)
-ARTICULO 20 BIS.- Los prestadores de servicios de salud enumerados en el artículo anterior deberán atender de forma expedita y sin condición de garantía financiera alguna a las mujeres embarazadas que presenten una urgencia obstétrica, solicitada de manera directa o a través de la referencia de otra unidad médica, independientemente de su derechohabiencia o afiliación a cualquier esquema de aseguramiento.
+(REFORMADO, P.O. 19 DE JUNIO DE 2024)
+ARTICULO 20 BIS.- Los prestadores de servicios de salud y telesalud enumerados en el artículo anterior deberán atender de forma expedita y sin condición de garantía financiera alguna a las mujeres embarazadas que presenten una urgencia obstétrica, solicitada de manera directa o a través de la referencia de otra unidad médica, independientemente de su derechohabiencia o afiliación a cualquier esquema de aseguramiento.

@@ -9,8 +9,8 @@ III.- Existan antecedentes, indicios o datos, denunciados o no, de cualquier tip
 IV.- Exista o haya existido, entre el activo y la víctima una relación sentimental, afectiva o de confianza, de parentesco, afinidad, matrimonio, concubinato, sociedad de convivencia, cohabitación, noviazgo o cualquier otra relación de hecho o amistad;
 (ADICIONADA, P.O. 13 DE JUNIO DE 2023)
 V.- Exista o haya existido entre el sujeto activo y la víctima, una relación laboral, docente, religiosa, institucional o cualquier otra que implique, de manera formal o de hecho, una relación de subordinación o superioridad;
-(REFORMADA Y REUBICADA [N. DE E. ANTES FRACCIÓN V], P.O. 13 DE JUNIO DE 2023)
-VI.- Existan datos, antecedentes, o indicios, denunciados o no, que establezcan que hubo amenazas, agresiones, intimidación, acoso o lesiones del sujeto activo en contra de la víctima, incluidas aquellas encaminadas a limitar, anular o menoscabar los derechos políticos y electorales de la víctima o el ejercicio de un cargo político, público, de poder o de decisión;
+(REFORMADA, P.O. 19 DE JUNIO DE 2024)
+VI.- Existan datos, antecedentes, o indicios, denunciados o no, que establezcan que hubo amenazas, agresiones, intimidación, acecho, acoso o lesiones del sujeto activo en contra de la víctima, incluidas aquellas encaminadas a limitar, anular o menoscabar los derechos políticos y electorales de la víctima o el ejercicio de un cargo político, público, de poder o de decisión;
 (REPUBLICADA Y REUBICADA [N. DE E. ANTES FRACCIÓN VI], P.O. 13 DE JUNIO DE 2023)
 VII.- La víctima haya sido incomunicada, cualquiera que sea el tiempo previo a la privación de la vida;
 (ADICIONADA, P.O. 13 DE JUNIO DE 2023)
