@@ -1,0 +1,3 @@
+P.O. 3 DE JULIO DE 2024.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. 65-867 MEDIANTE EL CUAL SE ADICIONA UNA FRACCIÓN II BIS AL ARTÍCULO 8o. DE LA LEY DE LA COMISIÓN DE DERECHOS HUMANOS DEL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
