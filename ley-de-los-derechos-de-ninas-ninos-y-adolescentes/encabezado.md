@@ -1,5 +1,4 @@
 LEY DE LOS DERECHOS DE NIÑAS, NIÑOS Y ADOLESCENTES DEL ESTADO DE TAMAULIPAS
-[N. DE E. CONTIENE LA FE DE ERRATAS PUBLICADA EN EL PERIÓDICO OFICIAL DEL ESTADO DE TAMAULIPAS EL 26 DE JUNIO DE 2024.]
 Ley publicada en el Anexo del Periódico Oficial del Estado de Tamaulipas, el miércoles 1 de julio de 2015.
 EGIDIO TORRE CANTÚ, Gobernador Constitucional del Estado Libre y Soberano de Tamaulipas, a sus habitantes hace saber:
 Que el Honorable Congreso del Estado, ha tenido a bien expedir el siguiente Decreto:
