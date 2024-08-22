@@ -1,0 +1,3 @@
+P.O. 21 DE AGOSTO DE 2024.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. 65-892 MEDIANTE EL CUAL SE REFORMA LA FRACCIÓN V, DEL ARTÍCULO 2, DE LA LEY DE DESARROLLO RURAL SUSTENTABLE DEL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
