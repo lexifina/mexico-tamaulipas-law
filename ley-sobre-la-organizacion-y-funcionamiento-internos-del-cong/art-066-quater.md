@@ -12,9 +12,8 @@ f) Asesorar a las comisiones del Congreso cuando éstas requieran información e
 g) Solicitar a la Secretaría de Finanzas la información que estime necesaria, a través y con autorización expresa del pleno de la Comisión de Finanzas, Planeación, Presupuesto y Deuda Pública del Congreso; y
 h) Realizar estudios sobre los temas directamente relacionados con las finanzas públicas, abarcando los que por su naturaleza tengan relación con éstos, a petición de las comisiones del Congreso o por iniciativa propia.
 2. Para el ejercicio de las atribuciones establecidas en el párrafo anterior, el Centro contará con la estructura administrativa que se prevea en el Reglamento, la cual podrá ampliarse conforme a las necesidades propias de su funcionamiento. El personal del instituto deberá contar con un perfil profesional relacionado con los ámbitos académicos y de la investigación.
-(NOTA: EL 19 DE NOVIEMBRE DE 2024, EL PLENO DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN, EN EL RESOLUTIVO TERCERO DE LA SENTENCIA DICTADA AL RESOLVER LA ACCIÓN DE INCONSTITUCIONALIDAD 177/2023 Y SU ACUMULADA 178/2023, DECLARÓ LA INVALIDEZ DEL DECRETO 65-619, POR EL QUE SE REFORMA EL NUMERAL 3 DE ESTE ARTÍCULO INDICADO CON MAYÚSCULAS, LA CUAL SURTIÓ EFECTOS EL 26 DE NOVIEMBRE DE 2024, DE ACUERDO A LAS CONSTANCIAS QUE OBRAN EN LA SECRETARÍA GENERAL DE ACUERDOS DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN. DICHA SENTENCIA PUEDE SER CONSULTADA EN LA DIRECCIÓN ELECTRÓNICA http://www.scjn.gob.mx/).
-(REFORMADO, P.O. 8 DE JULIO DE 2023)
-3. LA PERSONA TITULAR DE LA COORDINACIÓN DEL CENTRO SERÁ NOMBRADA, A PROPUESTA DE LA JUNTA DE GOBIERNO, Y SÓLO PODRÁ SER REMOVIDA POR EL PLENO.
+(REFORMADO, P.O. 20 DE AGOSTO DE 2024)
+3. La persona titular de la Coordinación del Centro será nombrada, a propuesta de la Junta de Gobierno, y sólo podrá ser removida por el Pleno Legislativo.
 (REFORMADO, P.O. 24 DE ABRIL DE 2018)
 4. Para ser titular de la Coordinación del Centro de Estudios sobre las Finanzas Públicas se requiere:
 (REFORMADO, P.O. 24 DE ABRIL DE 2018)
@@ -29,7 +28,6 @@ f) Acreditar mínimo de tres años en el ejercicio de su profesión.
 6. El Comité será el órgano de gobierno del Centro y tendrá entre sus atribuciones:
 a) Aprobar el reglamento interno que rija el trabajo técnico y científico encargado al Centro;
 b) Adoptar las medidas y decisiones relativas a la vinculación del Centro con otras instituciones similares de órganos legislativos nacionales y extranjeros; y
-(NOTA: EL 19 DE NOVIEMBRE DE 2024, EL PLENO DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN, EN EL RESOLUTIVO TERCERO DE LA SENTENCIA DICTADA AL RESOLVER LA ACCIÓN DE INCONSTITUCIONALIDAD 177/2023 Y SU ACUMULADA 178/2023, DECLARÓ LA INVALIDEZ DEL DECRETO 65-619, POR EL QUE SE REFORMA EL INCISO c) DEL NUMERAL 6 DE ESTE ARTÍCULO INDICADO CON MAYÚSCULAS, LA CUAL SURTIÓ EFECTOS EL 26 DE NOVIEMBRE DE 2024, DE ACUERDO A LAS CONSTANCIAS QUE OBRAN EN LA SECRETARÍA GENERAL DE ACUERDOS DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN. DICHA SENTENCIA PUEDE SER CONSULTADA EN LA DIRECCIÓN ELECTRÓNICA http://www.scjn.gob.mx/).
-(REFORMADO, P.O. 8 DE JULIO DE 2023)
-c) GESTIONAR ANTE LA JUNTA DE GOBIERNO LA ASIGNACIÓN DEL PRESUPUESTO DEL CENTRO PARA EL CUMPLIMIENTO DE SUS FUNCIONES Y ATRIBUCIONES.
+(REFORMADO, P.O. 20 DE AGOSTO DE 2024)
+c) Gestionar ante la Junta de Gobierno la asignación del presupuesto del Centro de Estudio de las Finanzas Públicas, para el cumplimiento de sus funciones y atribuciones.
 7. En los análisis, informes, proyecciones y toda clase de documentos que elabore el Centro, no podrán hacerse recomendaciones de política económica y social.

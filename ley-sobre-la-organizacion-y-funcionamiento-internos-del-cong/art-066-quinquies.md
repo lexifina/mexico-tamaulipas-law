@@ -9,7 +9,7 @@ d) La planeación, análisis, organización y ejecución de los programas de act
 (ADICIONADO, P.O. 20 DE AGOSTO DE 2024)
 3. La Unidad de Profesionalización Parlamentaria contará con un área especializada en Certificación y Capacitación de los servidores públicos de los servicios parlamentarios y administrativos.
 (REFORMADO, P.O. 20 DE AGOSTO DE 2024)
-4. El Titular de la Unidad será nombrado por la Junta de Gobierno, a propuesta del Presidente de la misma, por un término de tres años, pudiendo ser ratificado, y sólo podrá ser removido conforme a lo previsto en el artículo 66 SEXIES de la presente Ley.
+4. El Titular de la Unidad será nombrado por la Junta de Gobierno, a propuesta del Presidente de la misma, por un término de tres años, pudiendo ser ratificado, y sólo podrá ser removido conforme lo previsto en el artículo 66 SEXIES de esta Ley.
 5. Para ser nombrado Titular de la Unidad de Profesionalización Parlamentaria, se requiere:
 a) Ser mexicano;
 b) Estar en pleno goce de sus derechos civiles y políticos;

@@ -23,9 +23,8 @@ j) Impulsar programas editoriales y de difusión de las actividades del Congreso
 k) Aportar a los Diputados investigaciones técnicas que contribuyan al mejoramiento de su trabajo legislativo, a través del Comité del Instituto de Investigaciones Parlamentarias; y
 l) Las demás que se le encomienden a través del Comité del Instituto de Investigaciones Parlamentarias.
 2. Para el ejercicio de las atribuciones establecidas en el párrafo anterior, el Instituto contará con la estructura administrativa que se prevea en el Reglamento, la cual podrá ampliarse conforme a las necesidades propias de su funcionamiento. El personal del instituto deberá contar con un perfil profesional relacionado con los ámbitos académico y de la investigación.
-(NOTA: EL 19 DE NOVIEMBRE DE 2024, EL PLENO DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN, EN EL RESOLUTIVO TERCERO DE LA SENTENCIA DICTADA AL RESOLVER LA ACCIÓN DE INCONSTITUCIONALIDAD 177/2023 Y SU ACUMULADA 178/2023, DECLARÓ LA INVALIDEZ DEL DECRETO 65-619, POR EL QUE SE REFORMA EL NUMERAL 3 DE ESTE ARTÍCULO INDICADO CON MAYÚSCULAS, LA CUAL SURTIÓ EFECTOS EL 26 DE NOVIEMBRE DE 2024, DE ACUERDO A LAS CONSTANCIAS QUE OBRAN EN LA SECRETARÍA GENERAL DE ACUERDOS DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN. DICHA SENTENCIA PUEDE SER CONSULTADA EN LA DIRECCIÓN ELECTRÓNICA http://www.scjn.gob.mx/).
-(REFORMADO, P.O. 8 DE JULIO DE 2023)
-3. EL COORDINADOR DEL INSTITUTO SERÁ NOMBRADO POR EL PLENO, CON EL VOTO DE LA MAYORÍA DE LOS DIPUTADOS PRESENTES, A PROPUESTA DE LA JUNTA DE GOBIERNO, POR UN TÉRMINO DE TRES AÑOS, PUDIENDO SER RATIFICADO, Y SOLO PODRÁ SER REMOVIDO POR EL MISMO PLENO.
+(REFORMADO, P.O. 20 DE AGOSTO DE 2024)
+3. El Coordinador del Instituto será nombrado por el Pleno Legislativo, con el voto de la mayoría de las Diputadas y los Diputados presentes, a propuesta de la Junta de Gobierno, por un término de tres años, pudiendo ser ratificado, y solo podrá ser removido por el mismo Pleno Legislativo.
 4. Para ser nombrado Coordinador del Instituto de Investigaciones Parlamentarias se requiere:
 (REFORMADO, P. O. 19 DE ABRIL DE 2012)
 a) Ser mexicano;
