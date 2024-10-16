@@ -1,0 +1,3 @@
+P.O. 15 DE OCTUBRE DE 2024.
+[N. DE E. TRANSITORIO DEL "DECRETO No. 66-9 MEDIANTE EL CUAL SE ADICIONAN LAS FRACCIONES XII BIS AL ARTÍCULO 2; Y XXII BIS AL ARTÍCULO 5, DE LA LEY DE CAMBIO CLIMÁTICO PARA EL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
