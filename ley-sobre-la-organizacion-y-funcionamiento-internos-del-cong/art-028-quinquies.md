@@ -11,8 +11,8 @@ c) Proponer al Pleno Legislativo la integración de las comisiones ordinarias, d
 d) Proponer al Pleno Legislativo la designación de delegaciones para atender reuniones parlamentarias con instituciones parlamentarias del país o del extranjero; durante los recesos, la Junta de Gobierno podrá hacer la designación a propuesta de quien la presida;
 (REFORMADO, P.O. 20 DE AGOSTO DE 2024)
 e) Presentar al Pleno Legislativo el anteproyecto de presupuesto anual del Congreso del Estado;
-(REFORMADO, P.O. 20 DE AGOSTO DE 2024)
-f) Establecer la integración del Orden del Día de las sesiones, así como proponer las formas de cómo se seguirán los debates, las discusiones y deliberaciones. Para el ejercicio de esta atribución se podrá invitar a la Presidencia de la Mesa Directiva a participar en la reunión de la Junta de Gobierno;
+(REFORMADO, P.O. 15 DE OCTUBRE DE 2024)
+f) Establecer la integración del Orden del Día de las sesiones, las cuales podrán acordar se convoquen con el tiempo suficiente para la realización de estas, a efecto de que las diputadas y diputados de la Legislatura en funciones asistan puntualmente a las sesiones del Pleno, así como proponer las formas de cómo se seguirán los debates, las discusiones y deliberaciones. Para el ejercicio de esta atribución se podrá invitar a la Presidencia de la Mesa Directiva a participar en la reunión de la Junta de Gobierno;
 (REFORMADO, P.O. 20 DE AGOSTO DE 2024)
 g) Impulsar los trabajos de las comisiones ordinarias para la elaboración y el cumplimiento de los programas legislativos;
 (REFORMADO, P.O. 20 DE AGOSTO DE 2024)
