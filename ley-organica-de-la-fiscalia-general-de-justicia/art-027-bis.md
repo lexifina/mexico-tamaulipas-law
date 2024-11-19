@@ -1,3 +1,22 @@
-(DEROGADO PENÚLTIMO PÁRRAFO, P.O. 24 DE OCTUBRE DE 2023)
-(DEROGADO TERCER PÁRRAFO, P.O. 22 DE DICIEMBRE DE 2022)
-Artículo 27 Bis. (DEROGADO, P.O. 22 DE DICIEMBRE DE 2022)
+(REFORMADO [N. DE E. ADICIONADO], P.O. 18 DE NOVIEMBRE DE 2024)
+Artículo 27 Bis. Para el ejercicio efectivo de las funciones y el despacho de los asuntos que competen a la Fiscalía Especializada en Combate a la Corrupción, ésta se integrará cuando menos con las unidades administrativas siguientes:
+A. Coordinación General de Investigación:
+a) Coordinación de Investigación;
+b) Coordinación de Servicios Periciales;
+c) Dirección Zona Norte;
+d) Dirección Zona Sur Centro; y
+e) Unidad Especializada en la Investigación del Delito de Abuso de Autoridad.
+B. Coordinación General de Litigación:
+a) Coordinación de Litigación;
+b) Coordinación de Operación y Supervisión; y
+c) Dirección de Seguimiento a Medidas, Control Judicial y Amparos.
+C. Dirección de Administración;
+D. Coordinación de Comunicación Social y Enlace con Dependencias y Organismos;
+E. Dirección de Tecnologías, Sistemas y Soporte;
+F. Dirección de Prevención y Difusión; y
+G. Unidad de Inteligencia Financiera y Económica:
+a) Dirección de Investigación Financiera y Patrimonial;
+b) Dirección de Análisis de Información;
+c) Dirección de Análisis Forense; y
+d) Dirección Jurídica.
+Los servidores públicos titulares de las unidades administrativas señaladas en el apartado A, incisos a), c), d) y e), así como en el apartado a) y b), contarán con funciones de Ministerio Público, conforme a lo dispuesto por las fracciones VII y VIII, del artículo 6 de esta Ley.

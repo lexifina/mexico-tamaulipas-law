@@ -1,6 +1,11 @@
-(ADICIONADO, P.O. 24 DE OCTUBRE DE 2023)
-Artículo 27 Quinquies. La Fiscalía Especializada en Combate a la Corrupción, contará con dos Vicefiscalías Especializadas que serán las responsables de investigar hechos en materia de corrupción e intervenir en los procesos penales derivados del ejercicio de la acción penal, conforme a las atribuciones conferidas en esta Ley, el Reglamento y demás ordenamientos aplicables.
-Para el desarrollo de sus funciones, la Fiscalía Especializada en Combate a la Corrupción, contará con las siguientes Vicefiscalías Especializadas:
-I. Vicefiscalía Especializada en la Investigación de Hechos en Materia de Corrupción; y
-II. Vicefiscalía Especializada en Procesos Penales de Hechos en Materia de Corrupción.
-Los Vicefiscales Especializados poseerán el mismo nivel administrativo que los funcionarios previstos en el artículo 17 de esta Ley.
+(REFORMADO, P.O. 18 DE NOVIEMBRE DE 2024)
+Artículo 27 Quinquies. A la Unidad de Inteligencia Financiera y Económica, le corresponden las siguientes atribuciones y obligaciones:
+I. Requerir, obtener, analizar, procesar y consolidar información financiera, fiscal, patrimonial y económica de personas físicas o morales, para la investigación de hechos ilícitos con la finalidad de aportar o remitir los productos de inteligencia al Agente del Ministerio Público;
+II. Proponer al Fiscal Especializado en Combate a la Corrupción la celebración de convenios con instituciones u organismos públicos o privados, nacionales o extranjeros, en el ámbito de su competencia, donde se privilegie el intercambio de información, experiencias, conocimientos y avances tecnológicos;
+III. Requerir a las dependencias, entidades y demás órganos de la Administración Pública del Estado, de la Federación y de los municipios, la información y documentación necesaria para el ejercicio de las atribuciones que se le confieren;
+IV. Suscribir los documentos relativos al ejercicio de sus atribuciones;
+V. Participar, previo acuerdo con el Fiscal Especializado en Combate a la Corrupción, en la formulación, vigilancia y cumplimiento de los convenios o acuerdos de coordinación o colaboración suscritos en los términos de las leyes, reglamentos o acuerdos aplicables;
+VI. Realizar las diligencias necesarias para allegarse de información financiera, fiscal y patrimonial, de personas físicas y morales;
+VII. Colaborar en los procesos de investigación, previo acuerdo con el titular de la Fiscalía Especializada en Combate a la Corrupción, con las distintas unidades de la Fiscalía General de Justicia del Estado, conforme al ejercicio de sus funciones y atribuciones; y
+VIII. Las demás que sean necesarias para el ejercicio de sus funciones, las que le sean conferidas y las demás que le atribuyan expresamente el reglamento de esta ley y otras disposiciones.
+Los datos, documentos o cualquier otra información que obre en poder de la Unidad de Inteligencia, con motivo de las investigaciones realizadas conforme a sus funciones, tiene el carácter de reservada conforme a la (sic) Leyes en materia de transparencia y acceso a la información.

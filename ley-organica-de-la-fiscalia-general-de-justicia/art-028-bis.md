@@ -2,8 +2,9 @@
 Artículo 28 Bis. La persona titular de la Fiscalía Especializada en la Investigación de los Delitos contra Niñas, Niños y Adolescentes y de Delitos contra las Mujeres por Razones de Género, tendrá las siguientes facultades:
 I. Ejercer las atribuciones que la Constitución General, la Constitución del Estado, las leyes, reglamentos y demás disposiciones jurídicas confieren al Ministerio Público en lo relativo a los hechos que las leyes consideran como delitos de su competencia;
 II. Dirigir, coordinar, realizar la investigación y ejercer la acción penal en lo relativo a los delitos contenidos en las disposiciones legales en materia de niñas, niños y adolescentes;
-III. Conocer de las denuncias y/o querellas que se presenten por hechos que pudieran ser constitutivos de delitos en agravio de mujeres por razones de género, en estricto apego al respeto de los derechos humanos;
-IV. Recibir y dar trámite a las denuncias y/o querellas iniciadas con motivo de la presunta comisión del delito de feminicidio, de acuerdo a lo establecido en el marco jurídico aplicable;
+(REFORMADA, P.O. 18 DE NOVIEMBRE DE 2024)
+III. Conocer de las denuncias y/o querellas que se presenten por hechos que pudieran ser constitutivos de delitos en agravio de mujeres por razones de género, en estricto apego al respeto de los derechos humanos, siempre que no sea facultad de alguna Fiscalía o Unidad Especializada;
+IV. (DEROGADA, P.O. 18 DE NOVIEMBRE DE 2024)
 V. Conocer y decidir sobre la autorización del no ejercicio de la acción penal y las incompetencias propuestas por los Agentes del Ministerio Público correspondientes;
 VI. Implementar acciones para prevenir y combatir los delitos de su competencia;
 VII. Dictar las medidas de protección y providencias precautorias, tendentes a proteger a la víctima u ofendido de un riesgo inminente;
