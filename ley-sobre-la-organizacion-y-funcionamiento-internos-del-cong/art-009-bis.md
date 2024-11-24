@@ -1,5 +1,5 @@
 (ADICIONADO, P.O. 24 DE SEPTIEMBRE DE 2024)
-ARTÍCULO 9 BIS.
+ARTICULO 9 BIS.
 1. Para efectos de lo previsto en el artículo anterior, las y los diputados electos deberán presentarse en el Recinto Legislativo dentro de los tres días previos al inicio de la legislatura, en la fecha y horarios que defina la Presidencia de la Mesa Directiva o la Diputación Permanente, según sea el caso, cuyo aviso, para su conocimiento, deberá publicarse en los medios de difusión con que cuenta el Congreso del Estado, ello a efecto de realizar el trámite de verificación de identidad, mismo que se sujetará al siguiente procedimiento:
 a) Las y los diputados electos deberán comparecer de forma presencial e indelegable al Congreso del Estado, en el horario y fecha que al efecto sea definida por la Presidencia de la Mesa Directiva o la Diputación Permanente;
 b) El procedimiento de verificación de identidad será responsabilidad de la Presidencia de la Mesa Directiva o de la Diputación Permanente, según sea el caso, tomando como base el informe del Consejo General del Instituto Electoral de Tamaulipas sobre la legitimidad de los comicios y de las y los diputados electos conforme a los mismos;

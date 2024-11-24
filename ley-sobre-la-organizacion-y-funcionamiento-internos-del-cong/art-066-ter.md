@@ -23,8 +23,8 @@ j) Impulsar programas editoriales y de difusión de las actividades del Congreso
 k) Aportar a los Diputados investigaciones técnicas que contribuyan al mejoramiento de su trabajo legislativo, a través del Comité del Instituto de Investigaciones Parlamentarias; y
 l) Las demás que se le encomienden a través del Comité del Instituto de Investigaciones Parlamentarias.
 2. Para el ejercicio de las atribuciones establecidas en el párrafo anterior, el Instituto contará con la estructura administrativa que se prevea en el Reglamento, la cual podrá ampliarse conforme a las necesidades propias de su funcionamiento. El personal del instituto deberá contar con un perfil profesional relacionado con los ámbitos académico y de la investigación.
-(REFORMADO, P.O. 20 DE AGOSTO DE 2024)
-3. El Coordinador del Instituto será nombrado por el Pleno Legislativo, con el voto de la mayoría de las Diputadas y los Diputados presentes, a propuesta de la Junta de Gobierno, por un término de tres años, pudiendo ser ratificado, y solo podrá ser removido por el mismo Pleno Legislativo.
+(REFORMADO, P.O. 21 DE NOVIEMBRE DE 2024)
+3. La Coordinadora o el Coordinador del Instituto será nombrado por el Pleno Legislativo, con el voto de la mayoría de las Diputadas y los Diputados presentes, a propuesta de la Junta de Gobierno, por un término de tres años, pudiendo ser ratificado, y solo podrá ser removido por el mismo Pleno.
 4. Para ser nombrado Coordinador del Instituto de Investigaciones Parlamentarias se requiere:
 (REFORMADO, P. O. 19 DE ABRIL DE 2012)
 a) Ser mexicano;

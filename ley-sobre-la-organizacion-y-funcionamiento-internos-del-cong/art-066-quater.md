@@ -12,8 +12,8 @@ f) Asesorar a las comisiones del Congreso cuando éstas requieran información e
 g) Solicitar a la Secretaría de Finanzas la información que estime necesaria, a través y con autorización expresa del pleno de la Comisión de Finanzas, Planeación, Presupuesto y Deuda Pública del Congreso; y
 h) Realizar estudios sobre los temas directamente relacionados con las finanzas públicas, abarcando los que por su naturaleza tengan relación con éstos, a petición de las comisiones del Congreso o por iniciativa propia.
 2. Para el ejercicio de las atribuciones establecidas en el párrafo anterior, el Centro contará con la estructura administrativa que se prevea en el Reglamento, la cual podrá ampliarse conforme a las necesidades propias de su funcionamiento. El personal del instituto deberá contar con un perfil profesional relacionado con los ámbitos académicos y de la investigación.
-(REFORMADO, P.O. 20 DE AGOSTO DE 2024)
-3. La persona titular de la Coordinación del Centro será nombrada, a propuesta de la Junta de Gobierno, y sólo podrá ser removida por el Pleno Legislativo.
+(REFORMADO, P.O. 21 DE NOVIEMBRE DE 2024)
+3. La persona titular de la Coordinación del Centro de Estudios de las Finanzas Públicas, será nombrada, a propuesta de la Junta de Gobierno, y sólo podrá ser removida por el Pleno.
 (REFORMADO, P.O. 24 DE ABRIL DE 2018)
 4. Para ser titular de la Coordinación del Centro de Estudios sobre las Finanzas Públicas se requiere:
 (REFORMADO, P.O. 24 DE ABRIL DE 2018)
@@ -28,6 +28,6 @@ f) Acreditar mínimo de tres años en el ejercicio de su profesión.
 6. El Comité será el órgano de gobierno del Centro y tendrá entre sus atribuciones:
 a) Aprobar el reglamento interno que rija el trabajo técnico y científico encargado al Centro;
 b) Adoptar las medidas y decisiones relativas a la vinculación del Centro con otras instituciones similares de órganos legislativos nacionales y extranjeros; y
-(REFORMADO, P.O. 20 DE AGOSTO DE 2024)
-c) Gestionar ante la Junta de Gobierno la asignación del presupuesto del Centro de Estudio de las Finanzas Públicas, para el cumplimiento de sus funciones y atribuciones.
+(REFORMADO, P.O. 21 DE NOVIEMBRE DE 2024)
+c) Gestionar ante la Junta de Gobierno la asignación del presupuesto del Centro para el cumplimiento de sus funciones y atribuciones.
 7. En los análisis, informes, proyecciones y toda clase de documentos que elabore el Centro, no podrán hacerse recomendaciones de política económica y social.

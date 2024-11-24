@@ -3,8 +3,8 @@ ARTICULO 23 BIS.
 1. Son causas de remoción de los integrantes de la Mesa Directiva:
 a) Cuando, a juicio del Pleno legislativo incurran en causas graves que afecten las funciones legislativas;
 b) Si transgreden en forma grave o reiterada las disposiciones de la Constitución General de la República, la Constitución Política del Estado de Tamaulipas, o las de esta ley;
-(REFORMADO, P.O. 20 DE AGOSTO DE 2024)
-c) Cuando incumplan los acuerdos del Pleno, de la Junta de Gobierno o cuando se afecten las atribuciones constitucionales y legales del Congreso del Estado; y
+(REFORMADO, P.O. 21 DE NOVIEMBRE DE 2024)
+c) Si incumplan los acuerdos del Pleno Legislativo, de la Junta de Gobierno o cuando se afecten las atribuciones constitucionales y legales del Congreso del Estado; y
 d) Si dejan de asistir sin causa justificada, a tres o más sesiones del Congreso o al mismo número de reuniones de trabajo de la Mesa Directiva.
 Los integrantes de la Mesa Directiva sólo podrán ser removidos con el voto de la mayoría simple de los Diputados y Diputadas presentes del Congreso, y no podrán ser electos durante toda la Legislatura.
 Para los efectos del párrafo anterior se requerirá presentar solicitud por escrito, que acompañe los elementos probatorios que se estimen suficientes, y una vez hecha del conocimiento del Pleno; su posible deliberación se someterá a votación por cédula, requiriendo ésta ser aprobada por mayoría simple.
