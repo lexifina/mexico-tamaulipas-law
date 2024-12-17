@@ -1,0 +1,1 @@
+ARTÍCULO DÉCIMO PRIMERO. La Secretaría de Salud del Estado, deberá realizar las acciones necesarias a efecto de dar cumplimiento al otorgamiento del carnet de identificación, referido en el artículo 31 de la presente Ley, en un plazo no mayor a 60 días naturales, contados a partir de la entrada en vigor.

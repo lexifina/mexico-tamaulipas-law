@@ -1,0 +1,1 @@
+ARTÍCULO OCTAVO. El Sistema Estatal de Atención a Víctimas y la Comisión Estatal de Atención a Víctimas, deberán, conforme a sus competencias, elaborar y aprobar el Plan Anual de Atención a Víctimas y el Programa Estatal de Atención Integral a Víctimas, en un plazo no mayor a 90 días naturales, contados a partir de la entrada en vigor de la presente Ley.

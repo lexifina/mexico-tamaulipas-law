@@ -1,0 +1,1 @@
+ARTÍCULO DÉCIMO QUINTO. El Poder Judicial del Estado de Tamaulipas, conforme a sus competencias y facultades, deberá realizar las adecuaciones normativas, administrativas y presupuestales necesarias, para dar cumplimiento a lo establecido en el artículo 122 de la presente Ley, en un plazo no mayor a 60 días naturales, contados a partir de la entrada en vigor.

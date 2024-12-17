@@ -1,0 +1,1 @@
+ARTÍCULO SEXTO. En tanto no se emita la normatividad jurídica y administrativa indispensable para el funcionamiento de la Comisión Estatal de Atención a Víctimas, se seguirán aplicando las disposiciones legales y administrativas vigentes al momento de la entrada en vigor de la presente Ley, en lo que no se opongan al mismo.

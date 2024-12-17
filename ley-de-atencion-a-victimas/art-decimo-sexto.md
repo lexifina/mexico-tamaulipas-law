@@ -1,0 +1,5 @@
+ARTÍCULO DÉCIMO SEXTO. Se abroga la Ley de Atención a Víctimas para el Estado de Tamaulipas, expedida mediante Decreto número LXIII-156, del 11 de abril de 2017 y publicada en el Anexo al Periódico Oficial del Estado Extraordinario, número 6, de fecha 8 de mayo de 2017.
+SALÓN DE SESIONES DEL CONGRESO DEL ESTADO LIBRE Y SOBERANO DE TAMAULIPAS.- Cd. Victoria, Tam., a 13 de diciembre del año 2024.- DIPUTADA PRESIDENTA.- GUILLERMINA MAGALY DEANDAR ROBINSON.- Rúbrica.- DIPUTADO SECRETARIO.- JOSÉ ABDO SCHEKAIBÁN ONGAY.- Rúbrica.- DIPUTADA SECRETARIA.- ELVIA EGUÍA CASTILLO.- Rúbrica."
+Por tanto, mando se imprima, publique, circule y se le dé el debido cumplimiento.
+Dado en la residencia del Poder Ejecutivo, en Victoria, Capital del Estado de Tamaulipas, a los dieciséis días del mes de diciembre del año dos mil veinticuatro.
+ATENTAMENTE.- EL GOBERNADOR CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE TAMAULIPAS.- AMÉRICO VILLARREAL ANAYA.- Rúbrica.- EL SECRETARIO GENERAL DE GOBIERNO.- HÉCTOR JOEL VILLEGAS GONZÁLEZ.- Rúbrica.

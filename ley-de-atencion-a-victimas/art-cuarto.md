@@ -1,0 +1,1 @@
+ARTÍCULO CUARTO. La Comisión Estatal de Atención a Víctimas, emitirá la convocatoria pública para establecer los criterios de selección de la Asamblea Consultiva, en un plazo no mayor a 90 días naturales, contados a partir de la entrada en vigor.

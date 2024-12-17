@@ -1,0 +1,1 @@
+ARTÍCULO DÉCIMO SEGUNDO. El Sistema Estatal de Seguridad Pública, deberá realizar las acciones necesarias a efecto de dar cumplimiento a la concentración de información, referida en el artículo 43 de la presente Ley, en un plazo no mayor a 60 días naturales, contados a partir de la entrada en vigor.

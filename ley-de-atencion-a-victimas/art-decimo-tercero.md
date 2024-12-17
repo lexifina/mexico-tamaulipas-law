@@ -1,0 +1,1 @@
+ARTÍCULO DÉCIMO TERCERO. La Secretaría de Finanzas realizará las adecuaciones normativas necesarias para la creación, operación y administración del Fondo de Ayuda, Asistencia y Reparación Integral de la Comisión Estatal, asimismo contemplará lo conducente para el ejercicio fiscal del año 2025.

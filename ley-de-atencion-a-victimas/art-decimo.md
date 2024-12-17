@@ -1,0 +1,1 @@
+ARTÍCULO DÉCIMO. La Fiscalía General de Justicia del Estado de Tamaulipas, deberá iniciar y operar el registro referido en el artículo 15 de la presente Ley, en un plazo no mayor a 60 días naturales, contados a partir de la entrada en vigor de la presente Ley.
