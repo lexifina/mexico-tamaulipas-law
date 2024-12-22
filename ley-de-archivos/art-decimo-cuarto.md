@@ -1,0 +1,1 @@
+ARTÍCULO DÉCIMO CUARTO. En un lapso de seis meses, a partir de la entrada en vigor de la presente Ley, los sujetos obligados deberán adoptar las medidas económicas, de infraestructura y personal para el funcionamiento del Sistema Institucional de Archivos.

@@ -1,0 +1,1 @@
+ARTÍCULO SEXTO. El Órgano de Gobierno del Archivo General del Estado de Tamaulipas, deberá instalarse en un plazo no mayor a treinta días hábiles contados a partir de la entrada en vigor de la presente Ley.

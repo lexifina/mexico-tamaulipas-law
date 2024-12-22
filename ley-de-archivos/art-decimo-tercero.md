@@ -1,0 +1,1 @@
+ARTÍCULO DÉCIMO TERCERO. Los sujetos obligados a los que hace referencia la presente Ley, en la medida de su capacidad presupuesta! (sic), deberán realizar las modificaciones administrativas y presupuestales a fin de contar con los requerimientos mínimos de infraestructura, organización y funcionamiento de lo ordenado en el presente decreto.

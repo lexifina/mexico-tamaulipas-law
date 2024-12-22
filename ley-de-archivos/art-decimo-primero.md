@@ -1,0 +1,1 @@
+ARTÍCULO DÉCIMO PRIMERO. La persona titular del Archivo General del Estado, continuará en su encargo hasta en tanto se realicen las designaciones correspondientes, en términos de la normatividad aplicable.

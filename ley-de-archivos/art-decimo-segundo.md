@@ -1,0 +1,1 @@
+ARTÍCULO DÉCIMO SEGUNDO. El Órgano de Gobierno del Archivo General del Estado, deberá expedir y publicar en el Periódico Oficial del Estado en un periodo no mayor a seis meses, contado a partir de la entrada en vigor de la presente Ley, el Estatuto Orgánico del Archivo General del Estado, propuesto por el Director General.
