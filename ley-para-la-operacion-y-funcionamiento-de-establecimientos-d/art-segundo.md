@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO. Una vez entrada en vigor la presente Ley, se abroga la Ley Reglamentaria para Establecimientos de Bebidas Alcohólicas, publicada en el Periódico Oficial del Estado número 28 de fecha 05 de abril del 2000.
