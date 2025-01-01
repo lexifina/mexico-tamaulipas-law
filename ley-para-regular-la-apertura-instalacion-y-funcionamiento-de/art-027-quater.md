@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 20 DE DICIEMBRE DE 2024)
+ARTÍCULO 27 Quater. Los visitadores en el ejercicio de sus funciones, se presentarán en los establecimientos a que se refiere esta Ley, debiendo identificarse previamente con su credencial expedida por la Secretaría, ante la persona con quien entienda la diligencia.
+Los permisionarios, sus representantes legales o los encargados del establecimiento objeto de la visita domiciliaria estarán obligados a permitir el acceso inmediato a los visitadores, a darles las facilidades e informes necesarios para el desarrollo de su labor y, en general, a proporcionar todos los elementos y datos que estos requieran para la comprobación del cumplimiento de las disposiciones que a esta Ley se refiere.
+El incumplimiento de las disposiciones contenidas en este artículo, traerá como consecuencia la imposición de la sanción prevista en la fracción III del artículo 34 de esta Ley.
