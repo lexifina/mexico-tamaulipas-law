@@ -1,0 +1,6 @@
+P.O. 16 DE ENERO DE 2025.
+[N. DE E. TRANSITORIOS DEL "DECRETO No. 66-230 MEDIANTE EL CUAL SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES DE LA LEY ORGÁNICA DE LA ADMINISTRACIÓN PÚBLICA DEL ESTADO DE TAMAULIPAS; DE LA LEY DE OBRAS PÚBLICAS Y SERVICIOS RELACIONADOS CON LAS MISMAS PARA EL ESTADO DE TAMAULIPAS; DE LA LEY DE SEGURIDAD PÚBLICA PARA EL ESTADO DE TAMAULIPAS; Y DE LA LEY DE HACIENDA PARA EL ESTADO DE TAMAULIPAS".]
+ARTÍCULO PRIMERO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+ARTÍCULO SEGUNDO. La Secretaría de Finanzas, la Secretaría de Obras Públicas y la Secretaría de Seguridad Pública deberán realizar las adecuaciones administrativas y normativas necesarias para dar cumplimiento a lo establecido en el presente Decreto, en un plazo no mayor a 120 días naturales contados a partir de su entrada en vigor.
+ARTÍCULO TERCERO. La Secretaría de Finanzas deberá emitir los lineamientos a los que deberán sujetarse los propietarios para quedar inscritos en el Padrón de Maquinaria Pesada Destinada o de Uso para la Construcción, en un plazo no mayor a 120 días naturales contados a partir de la entrada en vigor del presente Decreto.
+ARTÍCULO CUARTO. Se derogan las disposiciones normativas que se opongan al presente Decreto.
