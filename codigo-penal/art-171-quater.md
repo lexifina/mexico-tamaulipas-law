@@ -24,5 +24,7 @@ IX.- Quien dañe, altere o impida el adecuado funcionamiento o monitoreo de cám
 [N. DE E. VÉASE LITERALIDAD DEL DECRETO NO. LXIII-160, PUBLICADO EN EL P.O. DE 21 DE ABRIL DE 2017, PÁGINA 10.]
 (REFORMADO PRIMER PÁRRAFO, P.O. 21 DE DICIEMBRE DE 2016)
 X.- Se deroga (sic)
+(ADICIONADA, P.O. 4 DE FEBRERO DE 2025)
+XI.- Quien posea o porte, en su persona, en el vehículo en el que se encuentre o se relacione con este, aeronaves pilotadas a distancia, así como también aquellos de desplazamiento terrestre que sean operados a control remoto, medios electrónicos o mediante mecanismos similares, equipadas con dispositivos que permitan fotografiar o realizar grabaciones de audio o video, para vigilar actividades de personas servidoras públicas con la finalidad de conocer o reportar su ubicación para evadir su acción o ejecutar agresiones en su contra, así como aquellas adaptadas para transportar, activar y detonar explosivos, artefactos explosivos, artefactos explosivos improvisados o armas, así como sustancias químicas que por sí solas o combinadas sean susceptibles de emplearse como explosivos.
 (ADICIONADO, P.O. 3 DE MAYO DE 2011)
 Las penas a las que se refiere el presente artículo, se aumentarán hasta en una mitad de la que corresponda por el delito cometido, cuando para su perpetración se utilice a uno o varios menores de edad; o cuando el responsable sea un servidor público o haya tenido tal carácter dentro de los cinco años anteriores a la comisión de la conducta delictiva.
