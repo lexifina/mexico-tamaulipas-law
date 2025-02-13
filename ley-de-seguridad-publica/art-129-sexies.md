@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 12 DE FEBRERO DE 2025)
+ARTÍCULO 129 SEXIES.
+1.- El día y hora señalados para la comparecencia del o de la Integrante, la persona titular de la Sala Especializada que la presidirá, declarará formalmente abierta la audiencia y enseguida, tomará los generales de aquél y de su defensor, a quien protestará en el cargo, y apercibirá al primero para conducirse con verdad. Acto seguido procederá a dar lectura a las constancias relativas a la causa de inasistencia y datos de cargo, así como las demás actuaciones que se hubiesen practicado.
+2.- La persona titular de la Sala Especializada, concederá el uso de la palabra al o a la Integrante y a su defensor, los que expondrán en forma concreta y específica lo que a su derecho convenga solo sobre las inasistencias materia del procedimiento administrativo especial.

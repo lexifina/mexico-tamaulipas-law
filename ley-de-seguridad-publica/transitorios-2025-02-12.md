@@ -1,0 +1,5 @@
+P.O. 12 DE FEBRERO DE 2025.
+[N. DE E. TRANSITORIOS DEL "DECRETO NO. 66-238 MEDIANTE EL CUAL SE REFORMAN, ADICIONAN Y DEROGAN DIVERSAS DISPOSICIONES DE LA LEY DE SEGURIDAD PÚBLICA PARA EL ESTADO DE TAMAULIPAS".]
+ARTÍCULO PRIMERO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+ARTÍCULO SEGUNDO. En un plazo no mayor a noventa días naturales contados a partir de la publicación del presente Decreto, se realizarán las acciones jurídicas y administrativas inherentes por lo que deberán adecuarse la normatividad aplicable, a efecto de que se realicen los procedimientos administrativos de remoción por faltas graves al régimen ·disciplinario y el de separación del cargo por incumplimiento a los requisitos de permanencia, de las y los integrantes de las instituciones policiales de la Secretaría de Seguridad Pública del Estado de Tamaulipas.
+ARTÍCULO TERCERO. Se derogan todas las disposiciones jurídicas y administrativas que se opongan al presente Decreto.

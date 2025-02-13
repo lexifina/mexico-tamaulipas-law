@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 12 DE FEBRERO DE 2025)
+ARTICULO 328 DECIES.- La pena prevista en el artículo anterior incrementará en una mitad cuando:
+I.- La persona que realiza la aplicación o tratamiento es profesional de la salud, estetista, cosmiatra, cosmetóloga u otro similar;
+II.- La víctima quede con secuelas visibles permanentemente como consecuencia de la aplicación o tratamiento y afecte su calidad de vida o proyecto de vida; y
+III.- Se cometan en niñas, niños, adolescentes y mujeres. Los términos establecidos para la prescripción no correrán mientras persistan las secuelas nocivas para la salud de la víctima. En caso de que la víctima fallezca por la aplicación o tratamiento de las sustancias modelantes no autorizadas, se aplicarán las reglas del homicidio según corresponda.
