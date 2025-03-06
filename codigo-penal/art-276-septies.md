@@ -11,8 +11,15 @@ Cuando el sujeto pasivo sea menor de edad o incapaz, se estará a lo dispuesto e
 Este delito, sólo será perseguido por querella de la parte ofendida, salvo que se trate de las personas descritas en el párrafo anterior, en cuyo caso se procederá de oficio.
 (ADICIONADO CON SUS INCISOS, P.O. 12 DE OCTUBRE DE 2023)
 Las penas se aumentarán hasta en una tercera parte cuando:
-a) El delito sea cometido por el ex cónyuge o por persona con la que esté, o haya estado unida a la víctima y ofendido por alguna relación sentimental o de afectividad;
-b) EI sujeto activo tenga relación de parentesco por consanguinidad, afinidad o civil; y
-c) En el ámbito laboral sea cometido por el superior jerárquico de la víctima o compañero de trabajo.
+(REFORMADO, P.O. 5 DE MARZO DE 2025)
+a) El delito sea cometido por el ex cónyuge o por persona con la que esté, o haya estado unida a la víctima y ofendido por alguna relación sentimental, de afectividad o de confianza;
+(REFORMADO, P.O. 5 DE MARZO DE 2025)
+b) EI sujeto activo tenga relación de parentesco por consanguinidad, afinidad o civil;
+(REFORMADO, P.O. 5 DE MARZO DE 2025)
+c) En el ámbito laboral sea cometido por la persona superior jerárquica de la víctima o compañera o compañero de trabajo;
+(ADICIONADO, P.O. 5 DE MARZO DE 2025)
+d) Cuando se obtenga algún tipo de beneficio no lucrativo; y
+(ADICIONADO, P.O. 5 DE MARZO DE 2025)
+e) Cuando se haga con fines lucrativos;
 (REFORMADO, P.O. 12 DE OCTUBRE DE 2023)
 Si se tratare de un servidor público adicionalmente será destituido e inhabilitado para ocupar empleo, cargo o comisión públicos por el mismo plazo del cumplimiento de la pena a que fuere condenado.
