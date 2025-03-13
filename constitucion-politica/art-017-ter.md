@@ -15,7 +15,8 @@ V.- Haberse desempeñado, cuando menos dos años, en forma destacada en activida
 VI.- Acreditar los conocimientos técnicos necesarios para el cargo;
 Los Comisionados se abstendrán de desempeñar cualquier otro empleo, trabajo o comisión públicos o privados, con excepción de los honorarios y académicos.
 Los Comisionados serán designados mediante el siguiente procedimiento:
-I.- Por cada vacante, el Congreso del Estado, mediante convocatoria pública, enviará al Gobernador Constitucional una lista de cinco aspirantes al cargo que hayan acreditado los requisitos señalados en este artículo. El Gobernador seleccionará a los tres candidatos que estime idóneos para el cargo y los propondrá al Congreso;
+(REFORMADA, P.O. 12 DE MARZO DE 2025)
+I.- Por cada vacante, el Congreso del Estado, mediante convocatoria pública, enviará a la Gobernadora o al Gobernador Constitucional una lista de cinco aspirantes al cargo que hayan acreditado los requisitos señalados en este artículo. La Gobernadora o el Gobernador seleccionará a los tres candidatos que estime idóneos para el cargo y los propondrá al Congreso;
 II.- La ratificación se hará por el voto de las dos terceras partes de los miembros presentes del Congreso del Estado; y
 III.- El Comisionado Presidente y los Comisionados durarán siete años en su encargo, serán sustituidos de manera escalonada y no podrán ser designados para un periodo inmediato posterior.
 (REFORMADO, P.O. 22 DE NOVIEMBRE DE 2020)

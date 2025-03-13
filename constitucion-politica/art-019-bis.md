@@ -9,9 +9,9 @@ III. El establecimiento de las bases de datos criminalísticos, de personal para
 IV. El Congreso establecerá en el Presupuesto de Egresos el Fondo Estatal de Fortalecimiento para la Seguridad Pública. La aplicación de dicho fondo estará a cargo del Secretariado Ejecutivo del Sistema. La ley determinará las reglas de operación y requisitos para acceder a los recursos. Los fondos deberán ser destinados exclusivamente para los fines de la seguridad pública del Estado.
 V. El Secretariado Ejecutivo del Sistema Estatal de Seguridad Pública será la instancia de evaluación de los programas y desempeño de las instancias estatales y municipales de seguridad pública. Podrá emitir recomendaciones y lineamientos generales para la coordinación operativa, así como para el desarrollo de estándares de actuación y de capacidades institucionales.
 VI. El Sistema Estatal de Control de Confianza dependerá del Secretariado Ejecutivo, en los términos que establezca la ley. Dicho sistema deberá establecer los procesos para la evaluación y certificación de mandos de las instancias de seguridad pública a nivel estatal y municipal.
-(REFORMADA, P.O. 21 DE SEPTIEMBRE DE 2021)
+(REFORMADO ESTE PÁRRAFO [N. DE E. REPUBLICADO], P.O. 12 DE MARZO DE 2025)
 VII. El Sistema Estatal de Seguridad Pública contará con un Consejo de Participación Ciudadana como un órgano de consulta independiente y externa de rendición de cuentas y evaluación política de seguridad en el Estado.
-(REFORMADO, P.O. 21 DE SEPTIEMBRE DE 2021)
-El cual se integrará por siete consejeros electos por la mayoría de los miembros presentes del Congreso a propuesta del Gobernador. El Consejo emitirá recomendaciones e informes no vinculantes. La ley establecerá los requisitos para ser consejero, así como sus obligaciones y prerrogativas.
+(REFORMADO, P.O. 12 DE MARZO DE 2025)
+El cual se integrará por siete personas consejeras electas por la mayoría de los miembros presentes del Congreso a propuesta de la Gobernadora o del Gobernador. El Consejo emitirá recomendaciones e informes no vinculantes. La ley establecerá los requisitos para ser consejero, así como sus obligaciones y prerrogativas.
 (ADICIONADO, P.O. 21 DE SEPTIEMBRE DE 2021)
 Los cargos de las personas integrantes del Consejo de Participación Ciudadana durarán cinco años improrrogables y serán renovados de manera escalonada; éstos serán de naturaleza honorifica, por lo que no recibirán retribución, emolumento o compensación alguna.
