@@ -1,0 +1,3 @@
+P.O. 13 DE MARZO DE 2025.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. 66-260 MEDIANTE EL CUAL SE REFORMAN LOS PÁRRAFOS SEGUNDO Y TERCERO DEL ARTÍCULO 1393, DEL CÓDIGO CIVIL PARA EL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
