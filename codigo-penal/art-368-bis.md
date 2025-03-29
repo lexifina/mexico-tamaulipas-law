@@ -1,8 +1,8 @@
 (REFORMADA SU DENOMINACIÓN, P.O. 24 DE JUNIO DE 2008)
 CAPITULO X
 VIOLENCIA FAMILIAR
-(REFORMADO PRIMER PÁRRAFO, P.O. 30 DE OCTUBRE DE 2018)
-ARTICULO 368 BIS.- Comete el delito de violencia familiar quien por acción u omisión ejerza cualquier tipo de maltrato físico, psicológico, patrimonial, económico o sexual contra cualquier otro miembro de la familia con el que se encuentre o haya estado unido por vínculo matrimonial, de parentesco por consanguinidad, afinidad o civil, concubinato, o que mantenga o haya mantenido una relación de hecho dentro o fuera del domicilio familiar.
+(REFORMADO PRIMER PÁRRAFO, P.O. 28 DE MARZO DE 2025)
+ARTICULO 368 Bis.- Comete el delito de violencia familiar quien por acción u omisión ejerza cualquier tipo de violencia y/o maltrato físico, psicológico, patrimonial, económico o sexual contra cualquier otro miembro de la familia con el que se encuentre o haya estado unido por vínculo matrimonial, de parentesco por consanguinidad, afinidad o civil, concubinato, o que mantenga o haya mantenido una relación de hecho dentro o fuera del domicilio familiar.
 (REFORMADO [N. DE E. CON SUS INCISOS], P.O. 26 DE MAYO DE 2015)
 Para los efectos de este capítulo, se considera miembro de familia:
 a) El cónyuge o concubino;
@@ -13,8 +13,8 @@ c) Los parientes colaterales consanguíneos o afines hasta el cuarto grado;
 d) Adoptantes o adoptados; y
 (ADICIONADO, P.O. 21 DE ABRIL DE 2017)
 e) El incapaz sobre el que se es tutor o curador.
-(ADICIONADO, P.O. 10 DE ENERO DE 2024)
-Para los efectos de este artículo, se entenderán por tipos de maltrato los previstos por el artículo 3, de la Ley de Prevención de la Violencia Familiar del Estado de Tamaulipas.
+(REFORMADO, P.O. 28 DE MARZO DE 2025)
+Para los efectos de este artículo, se entenderán por tipos de violencia y/o maltrato los previstos por los artículos 3, de la Ley de Prevención de la Violencia Familiar del Estado de Tamaulipas y 3, de la Ley para Prevenir, Atender, Sancionar y Erradicar la Violencia contra las Mujeres.
 (REFORMADO, P.O. 10 DE ENERO DE 2024)
 A quien cometa el delito de violencia familiar se le impondrá de dos a siete años de prisión y perderá el derecho de pensión alimenticia. Asimismo, se le sujetará a tratamiento psicológico especializado y estará obligado al pago de la reparación del daño de las víctimas
 (ADICIONADO, P.O. 10 DE ENERO DE 2024)
