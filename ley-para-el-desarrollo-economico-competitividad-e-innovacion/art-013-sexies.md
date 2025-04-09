@@ -4,5 +4,8 @@ I. Proponer al Ejecutivo Estatal el otorgamiento de estímulos para apoyar la in
 II. Diseñar y proponer en forma conjunta con la Secretaría, la Secretaría de Finanzas y los municipios, programas de estímulos fiscales a fin de impulsar las áreas de producción prioritarias para el desarrollo económico de su localidad;
 III. Impulsar los estudios de gran visión que le permitan detectar, analizar y atender los problemas del desarrollo económico y coordinar la atención y solución a los mismos, así como identificar, valorar y establecer prioridades en torno a los proyectos de infraestructura estratégica en los municipios de cada región del Estado para promover su desarrollo;
 IV. Coordinar acciones y emitir recomendaciones tendientes a mejorar el orden jurídico aplicable a las actividades productivas y brindar mayor certidumbre a los inversionistas;
-V. Analizar las solicitudes y aprobar en su caso el monto del porcentaje propuesto respecto al subsidio de los estímulos fiscales, así como también el otorgamiento de los incentivos no fiscales establecidos en esta ley.
-VI. Las demás que establezca esta ley, y otras disposiciones aplicables.
+(ADICIONADA, P.O. 8 DE ABRIL DE 2025)
+V. Proponer al Ejecutivo Estatal el otorgamiento de estímulos fiscales para las empresas que contraten personas privadas de la libertad, liberadas y/o externadas;
+(REFORMADA, P.O. 8 DE ABRIL DE 2025)
+VI. Analizar las solicitudes y aprobar en su caso el monto del porcentaje propuesto respecto al subsidio de los estímulos fiscales, así como también el otorgamiento de los incentivos no fiscales establecidos en esta ley; y
+VII. Las demás que establezca esta ley, y otras disposiciones aplicables.

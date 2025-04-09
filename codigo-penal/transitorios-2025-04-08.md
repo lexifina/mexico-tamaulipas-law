@@ -1,0 +1,3 @@
+P.O. 8 DE ABRIL DE 2025.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. 66-270 MEDIANTE EL CUAL SE REFORMA LA FRACCIÓN XIX, Y SE ADICIONA LA FRACCIÓN XX, AL ARTÍCULO 418, DEL CÓDIGO PENAL PARA EL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
