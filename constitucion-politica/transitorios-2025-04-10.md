@@ -1,0 +1,6 @@
+P.O. 10 DE ABRIL DE 2025.
+[N. DE E. TRANSITORIOS DEL "DECRETO No. 66-278 MEDIANTE EL CUAL SE REFORMA EL ARTÍCULO 20, PÁRRAFO SEGUNDO, FRACCIÓN V, PÁRRAFOS TERCERO, CUARTO, QUINTO, SEXTO, SÉPTIMO, OCTAVO, NOVENO, DÉCIMO, DÉCIMO PRIMERO, DÉCIMO SEGUNDO, DÉCIMO TERCERO, DÉCIMO CUARTO, DÉCIMO SÉPTIMO, DÉCIMO OCTAVO Y DÉCIMO NOVENO, INCISOS B) Y D), DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO DE TAMAULIPAS".]
+ARTÍCULO PRIMERO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+ARTÍCULO SEGUNDO. Comuníquese el presente Decreto al Senado de la República para los efectos de su competencia que, de conformidad con lo previsto en el artículo 20 base V, párrafo tercero de la Constitución Política del Estado de Tamaulipas que por el presente Decreto se reforma, el pleno del Tribunal Electoral del Estado de Tamaulipas se integra por cinco magistraturas.
+ARTÍCULO TERCERO. Al concluir el proceso electoral extraordinario 2024-2025 el Senado de la República deberá iniciar el proceso correspondiente para designar las magistraturas vacantes a efecto de que inicien funciones una vez que concluya el periodo de las magistraturas designadas en el año 2018.
+ARTÍCULO CUARTO. Se derogan todas las disposiciones que se opongan a lo dispuesto en el presente Decreto.
