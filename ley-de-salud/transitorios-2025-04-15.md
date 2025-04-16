@@ -1,0 +1,3 @@
+P.O. 15 DE ABRIL DE 2025.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. 66-277 MEDIANTE EL CUAL SE REFORMAN LAS FRACCIONES IX, X Y SE ADICIONA UNA FRACCIÓN XI, AL ARTÍCULO 2° TER, DE LA LEY DE SALUD PARA EL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.

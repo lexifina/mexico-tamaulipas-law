@@ -10,5 +10,9 @@ V.- Otorgar o negar su consentimiento válidamente informado;
 VI.- Ser tratado con confidencialidad;
 VII.- Contar con facilidades para obtener una segunda opinión;
 VIII.- Recibir atención médica en caso de urgencia;
-IX.- Contar con un expediente clínico y a solicitar un resumen clínico; y
-X.- Ser atendido cuando se inconforme por la atención médica recibida.
+(REFORMADA, P.O. 15 DE ABRIL DE 2025)
+IX.- Contar con un expediente clínico y a solicitar un resumen clínico;
+(REFORMADA, P.O. 15 DE ABRIL DE 2025)
+X.- Ser atendido cuando se inconforme por la atención medica recibida; y
+(ADICIONADA, P.O. 15 DE ABRIL DE 2025)
+XI.- Derecho a una atención primaria de salud basada en la persona y la comunidad, promovida a través de una colaboración intersectorial donde los sectores de salud, desarrollo social, privado, educación, y trabajo se involucren en la planeación y ejecución de programas de salud. Las acciones incluirán brigadas de atención domiciliaria, jornadas de salud comunitarias, centros de atención móvil, y programas de prevención, promoción y autocuidado, atención a la salud, rehabilitación y cuidados paliativos, en los que la población participe activamente en la construcción de su salud.
