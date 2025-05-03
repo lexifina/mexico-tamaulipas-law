@@ -15,7 +15,7 @@ D. Coordinación de Comunicación Social y Enlace con Dependencias y Organismos;
 E. Dirección de Tecnologías, Sistemas y Soporte;
 F. Dirección de Prevención y Difusión; y
 G. Unidad de Inteligencia Financiera y Económica:
-a) Dirección de Investigación Financiera y Patrimonial;
+a) (DEROGADO, P.O. 3 DE MAYO DE 2025)
 b) Dirección de Análisis de Información;
 c) Dirección de Análisis Forense; y
 d) Dirección Jurídica.

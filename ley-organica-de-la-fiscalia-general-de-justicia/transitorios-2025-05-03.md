@@ -1,0 +1,5 @@
+P.O. 3 DE MAYO DE 2025.
+[N. DE E. TRANSITORIOS DEL "DECRETO NO. 66-313 MEDIANTE EL CUAL SE REFORMAN LOS ARTÍCULOS 27, FRACCIONES X Y XI DEL PÁRRAFO PRIMERO; Y 27 QUINQUIES, FRACCIÓN IV; Y SE DEROGA EL INCISO A) DE LA LETRA G, DEL PÁRRAFO PRIMERO DEL ARTÍCULO 27 BIS DE LA LEY ORGÁNICA DE LA FISCALÍA GENERAL DE JUSTICIA DEL ESTADO DE TAMAULIPAS".]
+ARTÍCULO PRIMERO. El presente Decreto entrará en vigor el día de su publicación en el Periódico Oficial del Estado.
+ARTÍCULO SEGUNDO. Se derogan todas las disposiciones jurídicas que se opongan al presente Decreto.
+ARTÍCULO TERCERO. Los asuntos competencia de la Dirección de Investigación Patrimonial y Financiera que a la entrada en vigor del presente Decreto se encuentren en trámite, deberán ser atendidos por ésta hasta su conclusión, así mismo, se instruye a las instancias pertinentes, para efecto de llevar a cabo las adecuaciones administrativas correspondientes, las cuales deberán quedar concluidas en un plazo no mayor a 90 días naturales a partir de la entrada en vigor del presente Decreto.
