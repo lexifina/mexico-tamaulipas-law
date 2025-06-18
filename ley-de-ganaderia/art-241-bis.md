@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 17 DE JUNIO DE 2025)
+Artículo 241 Bis. Se impondrá una multa por el equivalente de 25 a 150 el valor diario de la UMA, a quien evada el Punto de Verificación e Inspección, Puntos de Expedición y ruta Pecuaria para la verificación de los documentos y animales movilizados, independientemente de las penas que correspondan por los delitos o las responsabilidades civiles en que hubieren incurrido, a quienes transgredan o incumplan con lo previsto por el artículo 106.

@@ -29,15 +29,23 @@ b).- Vehículos de más de 3 toneladas y hasta 6 toneladas, tres veces el valor 
 c).- Vehículos de más de 6 toneladas y hasta 10 toneladas, seis veces el valor diario de la Unidad de Medida y Actualización; y
 d).- Vehículos de más de 10 toneladas, catorce veces el valor diario de la Unidad de Medida y Actualización.
 VII.- (DEROGADA, P.O. 18 DE DICIEMBRE DE 2019)
-(ADICIONADA [N. DE E. CON SUS INCISOS], P.O. 23 DE DICIEMBRE DE 2023)
-VIII.- Por la movilización y obtención del Documento Único o Guía de Tránsito de Ganado en pie y otras especies se pagará:
-a) Movilización interna de ganado bovino, cero punto cuarenta y ocho veces el valor diario de la Unidad de Medida y Actualización;
-b) Movilización de ganado bovino de Prestador de Servicios Ganaderos, cero punto veintitrés veces el valor diario de la Unidad de Medida y Actualización;
-c) Movilización de ganado bovino que ingresa al Estado, cero punto sesenta y cinco veces el valor diario de la Unidad de Medida y Actualización;
-d) Movilización de tránsito o paso de ganado bovino en el Estado, cero punto cuarenta y seis veces el valor diario de la Unidad de Medida y Actualización;
+(REFORMADO [N. DE E. ESTE PÁRRAFO], P.O. 17 DE JUNIO DE 2025)
+VIII.- Por la verificación, revisión e inspección física y documental de Ganado en pie y otras especies se pagará:
+(REFORMADO, P.O. 17 DE JUNIO DE 2025)
+a) De ganado bovino, cero punto cuarenta y ocho veces el valor diario de la Unidad de Medida y Actualización;
+(REFORMADO, P.O. 17 DE JUNIO DE 2025)
+b) De ganado bovino de Prestador de Servicios Ganaderos, cero punto veintitrés veces el valor diario de la Unidad de Medida y Actualización;
+(REFORMADO, P.O. 17 DE JUNIO DE 2025)
+c) De ganado bovino que ingresa al Estado, cero punto sesenta y cinco veces el valor diario de la Unidad de Medida y Actualización;
+(REFORMADO, P.O. 17 DE JUNIO DE 2025)
+d) De ganado bovino que pasa por el Estado, cero punto cuarenta y seis veces el valor diario de la Unidad de Medida y Actualización;
+(ADICIONADO, P.O. 23 DE DICIEMBRE DE 2023)
 e) Ganado equino, cero punto cuarenta y tres veces el valor diario de la Unidad de Medida y Actualización;
+(ADICIONADO, P.O. 23 DE DICIEMBRE DE 2023)
 f ) Ganado caprino, ovino y porcino, cero punto doce veces el valor diario de la Unidad de Medida y Actualización;
+(ADICIONADO, P.O. 23 DE DICIEMBRE DE 2023)
 g) Aves de corral, cero punto cero cero cero tres veces el valor diario de la Unidad de Medida y Actualización; y
+(ADICIONADO, P.O. 23 DE DICIEMBRE DE 2023)
 h) Abejas por alzas, cero punto quince veces el valor diario de la Unidad de Medida y Actualización.
 (ADICIONADA [N. DE E. CON SUS INCISOS], P.O. 23 DE DICIEMBRE DE 2023)
 IX.- Por la realización de los procesos sanitarios y de seguridad en materia Agropecuaria se pagará por:
