@@ -1,0 +1,4 @@
+P.O. 19 DE JUNIO DE 2025.
+[N. DE E. TRANSITORIOS DEL "DECRETO NO. 66-347 MEDIANTE EL CUAL SE REFORMAN LAS FRACCIONES XV Y XVI; Y SE ADICIONAN LAS FRACCIONES XVI Y XVII, RECORRIÉNDOSE LA ACTUAL XVI PARA SER XVIII, DEL ARTÍCULO 32, DE LA LEY ORGÁNICA DE LA ADMINISTRACIÓN PÚBLICA DEL ESTADO DE TAMAULIPAS".]
+ARTÍCULO PRIMERO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+ARTÍCULO SEGUNDO. Las personas empleadoras tendrán 90 días a partir de la entrada en vigor del presente decreto para elaborar y, en su caso, registrar ante la Secretaría del Trabajo y Previsión Social del Estado de Tamaulipas, los protocolos que implementen para prevenir la discriminación por razones de género y atención de casos de violencia y acoso u hostigamiento sexual.
