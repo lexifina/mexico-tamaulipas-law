@@ -1,1 +1,0 @@
-ARTÍCULO QUINTO. El Poder Ejecutivo, a través del Instituto de la Juventud de Tamaulipas, en un plazo de noventa días a partir de la entrada en vigor de la presente Ley, deberá expedir la Reglamentación del Sistema de Información e investigación de la Juventud.

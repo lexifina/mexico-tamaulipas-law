@@ -1,1 +1,0 @@
-ARTÍCULO SÉPTIMO. El Poder Ejecutivo y el Instituto de la Juventud de Tamaulipas conforme a sus atribuciones citarán a reunión extraordinaria del Sistema de Desarrollo de la Juventud para dar su instalación y posesión a sus integrantes, dentro de los sesenta días naturales siguientes a la publicación del presente Decreto.
