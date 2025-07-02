@@ -1,0 +1,3 @@
+P.O. 1 DE JULIO DE 2025.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. 66-360 MEDIANTE EL CUAL SE REFORMA EL ARTÍCULO 26 DE LA LEY DE LOS DERECHOS DE LAS PERSONAS ADULTAS MAYORES EN EL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.

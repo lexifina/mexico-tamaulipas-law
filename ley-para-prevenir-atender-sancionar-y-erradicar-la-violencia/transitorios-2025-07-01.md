@@ -1,0 +1,3 @@
+P.O. 1 DE JULIO DE 2025.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. 66-359 MEDIANTE EL CUAL SE REFORMA EL ARTÍCULO 2, INCISO D) DE LA LEY PARA PREVENIR, ATENDER, SANCIONAR Y ERRADICAR LA VIOLENCIA CONTRA LAS MUJERES".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
