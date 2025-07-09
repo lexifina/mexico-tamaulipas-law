@@ -1,0 +1,7 @@
+P.O. 8 DE JULIO DE 2025.
+[N. DE E. TRANSITORIOS DEL "DECRETO NO. 66-350 MEDIANTE EL CUAL SE REFORMAN, ADICIONAN Y DEROGAN DIVERSAS DISPOSICIONES DE LA LEY DE TRÁNSITO Y DE LA LEY DE SEGURIDAD PÚBLICA PARA EL ESTADO DE TAMAULIPAS".]
+ARTÍCULO PRIMERO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+ARTÍCULO SEGUNDO. Se derogan todas las disposiciones jurídicas y administrativas que se opongan al presente Decreto.
+ARTÍCULO TERCERO. Se instruye a la Secretaría General de Gobierno, Secretaría de Finanzas, Secretaría de Seguridad Pública, así como a la Secretaría de Desarrollo Urbano y Medio Ambiente, a realizar, en el ámbito de sus competencias, los procedimientos correspondientes para llevar a cabo las adecuaciones reglamentarias y normativas a las que haya lugar, derivado del presente Decreto, sin que tales adecuaciones puedan exceder de 60 días naturales, contados a partir de la entrada en vigor.
+ARTÍCULO CUARTO. La Secretaría de Finanzas en coordinación con las áreas competentes deberá realizar los trámites administrativos necesarios para expedir la Licencia Digital, cuando así se lo soliciten, así como los permisos para circular sin placas en un plazo no mayor a 90 días naturales, contados a partir de la entrada en vigor del presente Decreto.
+ARTÍCULO QUINTO. La Secretaría de Finanzas realizará, en su caso, las modificaciones presupuestales necesarias para dar cumplimiento a lo establecido en el presente Decreto.

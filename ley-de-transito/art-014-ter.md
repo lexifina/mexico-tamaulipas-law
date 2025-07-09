@@ -1,3 +1,4 @@
+(REFORMADO PRIMER PÁRRAFO, P.O. 8 DE JULIO DE 2025)
+ARTICULO 14 Ter.- Los Guardias de Tránsito Estatal o Agentes de Tránsito Municipal que violen las disposiciones legales y reglamentarias en la materia, o que en aplicación de las mismas soliciten el arrastre de un vehículo y su remisión a un depósito de vehículos sin causa justificada, se le aplicarán las sanciones correspondientes.
 (ADICIONADO, P.O. 28 DE MAYO DE 2024)
-ARTICULO 14 Ter.- Los Guardias de Tránsito Estatal o Agentes de Tránsito Municipal que violen las disposiciones legales y reglamentarias en la materia, o que en aplicación de las mismas soliciten el arrastre de un vehículo y su remisión a un depósito autorizado sin causa justificada, se le aplicarán las sanciones correspondientes.
 Los particulares pueden acudir ante la autoridad ministerial, la Dirección de Asuntos Internos de la Secretaría de Seguridad u órganos de disciplina de los municipios a denunciar presuntos actos ilícitos de los Guardias de Tránsito Estatal o Agentes de Tránsito municipal.

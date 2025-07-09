@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 28 DE MAYO DE 2024)
-ARTICULO 51 Bis.- Contra las sanciones por infracción a las disposiciones normativas en la materia, procede el recurso de revisión expresado en la Ley de Procedimiento Administrativo para el Estado de Tamaulipas.
+(REFORMADO, P.O. 8 DE JULIO DE 2025)
+ARTICULO 51 Bis.- Contra las sanciones por infracción a las disposiciones normativas en la materia, procede el recurso de revisión expresado en la Ley de Procedimiento Administrativo para el Estado de Tamaulipas y el plazo para interponerlo será de quince días hábiles contados a partir del día siguiente a aquél en que hubiere surtido efectos la notificación del acto o resolución que se recurra.
