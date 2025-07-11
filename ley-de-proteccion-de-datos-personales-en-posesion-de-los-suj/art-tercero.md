@@ -1,0 +1,1 @@
+ARTÍCULO TERCERO. A la entrada en vigor del presente Decreto se abroga la Ley de Protección de Datos Personales en Posesión de Sujetos Obligados del Estado de Tamaulipas, publicada en el Periódico Oficial Anexo al número 99 de fecha 17 de agosto de 2017.
