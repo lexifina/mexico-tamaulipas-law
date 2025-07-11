@@ -1,0 +1,7 @@
+P.O. 10 DE JULIO DE 2025.
+[N. DE E. TRANSITORIOS DEL "DECRETO NO. 66-371 MEDIANTE EL CUAL SE REFORMAN, ADICIONAN Y DEROGAN DIVERSAS DISPOSICIONES DE LA LEY ORGÁNICA DE LA ADMINISTRACIÓN PÚBLICA DEL ESTADO DE TAMAULIPAS".]
+ARTÍCULO PRIMERO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+ARTÍCULO SEGUNDO. Las menciones y atribuciones contenidas en otras leyes, reglamentos y, en general, en cualquier disposición normativa, respecto de la Contraloría Gubernamental se entenderán hechas o conferidas a la Secretaría Anticorrupción y Buen Gobierno.
+Todos los actos jurídicos celebrados antes de la entrada en vigor del presente Decreto, por la Contraloría Gubernamental, se entenderán vigentes hasta en tanto las partes acuerden lo contrario.
+ARTÍCULO TERCERO. Se convalida la vigencia de los nombramientos de las personas titulares de las unidades administrativas de la Contraloría Gubernamental del Poder Ejecutivo del Estado, expedidos a partir del 1 de octubre de 2022 cuya denominación o adscripción no haya sido modificado con motivo de acuerdos que entrañen reformas a la estructura orgánica de la Contraloría Gubernamental, expedidos en fecha posterior.
+ARTÍCULO CUARTO. En un plazo no mayor a 90 días hábiles contados a partir de la entrada en vigor del presente Decreto, se realizarán las adecuaciones reglamentarias, de estructura orgánica y demás normatividad a la que haya lugar.
