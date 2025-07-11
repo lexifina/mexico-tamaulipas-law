@@ -1,0 +1,1 @@
+ARTÍCULO SÉPTIMO. Los recursos materiales con que cuente el Instituto de Transparencia de Acceso a la Información y de Protección de Datos Personales del Estado de Tamaulipas (ITAIT) serán transferidos a la Secretaría Anticorrupción y Buen Gobierno, dentro de los veinte días hábiles siguientes a la entrada en vigor del presente Decreto.

@@ -1,0 +1,1 @@
+ARTÍCULO CUARTO. Se crea el Órgano desconcentrado de la Secretaría Anticorrupción y Buen Gobierno, denominado "Transparencia para el Pueblo de Tamaulipas", el cual conocerá de los asuntos en materia de transparencia y protección de datos personales con las facultades y atribuciones establecidas en el presente Decreto.

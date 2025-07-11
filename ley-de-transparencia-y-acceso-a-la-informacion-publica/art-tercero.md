@@ -1,0 +1,1 @@
+ARTÍCULO TERCERO. A la entrada en vigor del presente Decreto y en atención a los artículos TERCERO y SEXTO transitorios del Decreto número 66-318, publicado en el Periódico Oficial del Estado, el 13 de mayo de 2025, se extingue el Instituto de Transparencia de Acceso a la Información y de Protección de Datos Personales del Estado de Tamaulipas (ITAIT).

@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO. A la entrada en vigor del presente Decreto se abroga la Ley de Transparencia y Acceso a la Información Pública del Estado de Tamaulipas, por Decreto No. LXII-948, del 26 de abril de 2016, publicado en el Anexo al P.O. No. 50, del 27 de abril de 2016.
