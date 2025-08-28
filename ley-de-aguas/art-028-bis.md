@@ -3,7 +3,8 @@ Artículo 28 Bis.
 1. El Consejo de Administración de los organismos operadores estatales estará integrado por:
 I. El Titular de la Secretaría de Recursos Hidráulicos para el Desarrollo Social, quien fungirá como Presidente;
 II. Dos representantes municipales, los cuales uno será el Presidente Municipal y otro el titular de dependencia responsable del desarrollo social, desarrollo urbano, obras públicas, desarrollo económico o medio ambiente;
-III. Tres representantes del Gobierno del Estado, uno de la Secretaría (sic) Salud, otro de la Secretaría de Desarrollo Urbano y Medio Ambiente y otro de la Contraloría Gubernamental;
+(REFORMADA, P.O. 27 DE AGOSTO DE 2025)
+III. Cuatro representantes del Gobierno del Estado, uno de la Secretaría (sic) Salud, otro de la Secretaría de Desarrollo Urbano y Medio Ambiente, otro de la Secretaría de Administración y otro de la Secretaría de Finanzas;
 IV. Las Diputadas o Diputados del Congreso del Estado electos en los distritos electorales uninominales comprendidos dentro del ámbito territorial donde desarrolle sus funciones el organismo operador de que se trate, y;
 V. Un representante del sector social o privado que tenga representatividad en el desarrollo económico y social del Municipio.
 2. El representante del Municipio será designado por el Presidente Municipal; el representante del sector social o privado será designado por el Consejo de Administración con base en la propuesta que realicen los grupos sociales, organizaciones o la ciudadanía en general.
