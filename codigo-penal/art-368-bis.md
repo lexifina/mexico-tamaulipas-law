@@ -15,8 +15,8 @@ d) Adoptantes o adoptados; y
 e) El incapaz sobre el que se es tutor o curador.
 (REFORMADO, P.O. 28 DE MARZO DE 2025)
 Para los efectos de este artículo, se entenderán por tipos de violencia y/o maltrato los previstos por los artículos 3, de la Ley de Prevención de la Violencia Familiar del Estado de Tamaulipas y 3, de la Ley para Prevenir, Atender, Sancionar y Erradicar la Violencia contra las Mujeres.
-(REFORMADO, P.O. 10 DE ENERO DE 2024)
-A quien cometa el delito de violencia familiar se le impondrá de dos a siete años de prisión y perderá el derecho de pensión alimenticia. Asimismo, se le sujetará a tratamiento psicológico especializado y estará obligado al pago de la reparación del daño de las víctimas
+(REFORMADO, P.O. 29 DE AGOSTO DE 2025)
+A quien cometa el delito de violencia familiar se le impondrá de dos a siete años de prisión y perderá los derechos de pensión alimenticia, así como los de carácter sucesorio con relación a la víctima. Asimismo, se le sujetará a tratamiento psicológico especializado y estará obligado al pago de la reparación del daño de las víctimas.
 (ADICIONADO, P.O. 10 DE ENERO DE 2024)
 Si además del delito de violencia familiar resultase cometido otro, se aplicarán las reglas del concurso.
 (ADICIONADO, P.O. 10 DE ENERO DE 2024)
