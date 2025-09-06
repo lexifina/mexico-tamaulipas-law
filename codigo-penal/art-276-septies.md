@@ -7,6 +7,8 @@ ARTICULO 276 Septies.- Comete el delito de violación a la intimidad, el que rev
 (ADICIONADO, P.O. 12 DE OCTUBRE DE 2023)
 Se equiparará al delito de violación a la intimidad y se sancionará con la misma pena a quien sustraiga u obtenga de dispositivos de almacenamiento físico o virtual, cualquier imagen, vídeo, texto o audios de contenido íntimo, erótico o sexual, sin la autorización o consentimiento de la víctima.
 Al responsable del delito de violación a la intimidad, se le impondrá una pena de cuatro a ocho años de prisión y multa de mil a dos mil veces el valor diario de la Unidad de Medida y Actualización.
+(ADICIONADO, P.O. 5 DE SEPTIEMBRE DE 2025)
+En aquellos casos donde se haga uso de la inteligencia artificial como herramienta o medio para la comisión del delito de violación a la intimidad, se agravará la sanción conforme a lo dispuesto en el artículo 71 Ter de este Código.
 Cuando el sujeto pasivo sea menor de edad o incapaz, se estará a lo dispuesto en el artículo 194 Bis de este mismo ordenamiento.
 Este delito, sólo será perseguido por querella de la parte ofendida, salvo que se trate de las personas descritas en el párrafo anterior, en cuyo caso se procederá de oficio.
 (ADICIONADO CON SUS INCISOS, P.O. 12 DE OCTUBRE DE 2023)
