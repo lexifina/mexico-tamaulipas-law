@@ -1,5 +1,5 @@
-(REFORMADO PRIMER PÁRRAFO, P.O. 21 DE DICIEMBRE DE 2016)
-ARTICULO 254 BIS.- Se impondrán de seis meses a seis años de prisión y multa de cincuenta a doscientos (sic) cincuenta veces el valor diario de la Unidad de Medida y Actualización, al que con el propósito de obtener sentencia, resolución o acto administrativo en la que se derive un perjuicio o un beneficio indebido o mayor del que legalmente corresponde, simule un acto jurídico, un acto o escrito judicial o altere elementos de prueba y los presente en juicio, o realice cualquier otro acto tendente a inducir a error a la autoridad judicial o administrativa.
+(REFORMADO PRIMER PÁRRAFO, P.O. 29 DE SEPTIEMBRE DE 2025)
+ARTICULO 254 BIS.- Se impondrán de ocho meses a ocho años de prisión y multa de cien a trescientas veces el valor diario de la Unidad de Medida y Actualización, al que con el propósito de obtener sentencia, resolución o acto administrativo en la que se derive un perjuicio o un beneficio indebido o mayor del que legalmente corresponde, simule un acto jurídico, un acto o escrito judicial o altere elementos de prueba y los presente en juicio, o realice cualquier otro acto tendente a inducir a error a la autoridad judicial o administrativa.
 (ADICIONADO, P.O. 30 DE SEPTIEMBRE DE 2013)
 De verificarse el perjuicio o los beneficios a que se refiere el primer párrafo, las penas se incrementarán hasta en dos tercios.
 (ADICIONADO, P.O. 30 DE SEPTIEMBRE DE 2013)
