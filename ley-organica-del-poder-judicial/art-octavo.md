@@ -1,0 +1,1 @@
+ARTÍCULO OCTAVO. En todo lo no previsto en el presente Decreto, el Pleno del Tribunal de Disciplina Judicial regulará la transición de los procesos disciplinarios de los que conoce el Consejo de la Judicatura del Estado mediante acuerdo general.

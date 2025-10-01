@@ -1,0 +1,5 @@
+ARTÍCULO QUINTO.
+I.- Al Tribunal de Disciplina Judicial le corresponderá recibir los recursos materiales, humanos, financieros y presupuestales de las áreas que actualmente ejercen funciones de disciplina y control interno.
+En lo relativo a los derechos laborales del personal administrativo que sea readscrito del Consejo de la Judicatura del Estado al Tribunal de Disciplina Judicial, estos serán respetados en todo momento, de conformidad con lo dispuesto en las leyes laborales y demás disposiciones aplicables.
+II. Al Órgano de Administración Judicial se transferirán los recursos materiales, humanos, financieros y presupuestales de las áreas que actualmente ejercen funciones de administración y de carrera judicial, tanto del Supremo Tribunal de Justicia, como del Consejo de la Judicatura del Estado.
+En lo relativo a los derechos laborales del personal administrativo que sea readscrito del Consejo de la Judicatura del Estado al Órgano de Administración Judicial, estos serán respetados en todo momento, de conformidad con lo dispuesto en las leyes laborales y demás disposiciones aplicables.

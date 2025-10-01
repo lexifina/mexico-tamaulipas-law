@@ -1,0 +1,1 @@
+ARTÍCULO NOVENO. Los Acuerdos Generales emitidos por el Consejo de la Judicatura del Estado continuarán vigentes en todo lo que no se oponga a la presente Ley hasta en tanto el Órgano de Administración Judicial y el Tribunal de Disciplina Judicial emitan sus propios Acuerdos.

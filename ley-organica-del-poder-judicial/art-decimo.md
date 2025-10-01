@@ -1,0 +1,1 @@
+ARTÍCULO DÉCIMO. Hasta en tanto se crean los juzgados especializados en materia mercantil, seguirán conociendo de los juicios de esta materia las y los jueces civiles y menores, atendiendo a la cuantía del negocio, con excepción de los asuntos de oralidad mercantil, cuya competencia corresponde en exclusiva a los Jueces de Primera Instancia en materia Civil.

@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO. A partir de la entrada en vigor del presente Decreto, se abroga la Ley Orgánica del Poder Judicial del Estado, expedida mediante Decreto No. 361 de fecha 13 de diciembre del 2000 y publicada en el Anexo al Periódico Oficial No. 135 del 19 de diciembre del 2000.
