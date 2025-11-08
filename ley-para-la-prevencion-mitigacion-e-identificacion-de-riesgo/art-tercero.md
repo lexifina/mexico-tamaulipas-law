@@ -1,0 +1,1 @@
+ARTÍCULO TERCERO. La Secretaría de Desarrollo Energético, realizará modificaciones a su Reglamento Interior, así como a sus Manuales de Organización, con el objeto de integrar las facultades que este ordenamiento le otorga, asimismo; realizará las adecuaciones de carácter orgánico, estructural y funcional para su debido cumplimiento.

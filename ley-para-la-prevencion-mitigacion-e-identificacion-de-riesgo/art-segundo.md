@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO. La Secretaría de Desarrollo Energético, expedirá dentro de los 180 días siguientes a la entrada en vigor de la presente Ley, el instrumento denominado Sistema de Información Energética Estatal de Tamaulipas, con la información proporcionada e identificada por aquellas personas o entidades vinculadas al sector energético.

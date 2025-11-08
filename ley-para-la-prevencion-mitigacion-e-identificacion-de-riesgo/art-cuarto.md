@@ -1,0 +1,5 @@
+ARTÍCULO CUARTO. Las erogaciones que se generen con motivo de la entrada en vigor de la presente Ley, se cubrirán con cargo al presupuesto aprobado a la Secretaría de Desarrollo Energético, para el ejercicio fiscal que corresponda a la entrada en vigor de esta ley y los subsecuentes que correspondan.
+CENTRO DE CONVENCIONES Y EXPOSICIONES.- Tampico, Tam., a 30 de octubre del año 2025.- DIPUTADA PRESIDENTA.- EVA ARACELI REYES GONZÁLEZ.- Rúbrica.- DIPUTADA SECRETARIA.- PATRICIA MIREYA SALDÍVAR CANO.- Rúbrica.- DIPUTADO SECRETARIO.- FRANCISCO HERNÁNDEZ NIÑO.- Rúbrica."
+Por tanto, mando se imprima, publique, circule y se le dé el debido cumplimiento.
+Dado en la residencia del Poder Ejecutivo, en Victoria, Capital del Estado de Tamaulipas, a los treinta y un días del mes de octubre del año dos mil veinticinco.
+ATENTAMENTE.- EL GOBERNADOR CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE TAMAULIPAS.- AMÉRICO VILLARREAL ANAYA.- Rúbrica.- EL SECRETARIO GENERAL DE GOBIERNO.- HÉCTOR JOEL VILLEGAS GONZÁLEZ.- Rúbrica.
