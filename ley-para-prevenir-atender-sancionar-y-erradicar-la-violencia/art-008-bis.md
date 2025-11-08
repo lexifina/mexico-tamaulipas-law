@@ -1,3 +1,5 @@
 (ADICIONADO, P.O. 14 DE SEPTIEMBRE DE 2017)
 Artículo 8 Bis.
 Violencia mediática contra las mujeres es aquella que se ejerce mediante la publicación o difusión de mensajes e imágenes estereotipados a través de cualquier medio de comunicación local, que de manera directa o indirecta promueva la explotación de mujeres o sus imágenes, injurie, difame, discrimine, deshonre, humille o atente contra la dignidad de las mujeres, como así también la utilización de mujeres, adolescentes y niñas en mensajes e imágenes pornográficas, legitimando la desigualdad de trato o construya patrones socioculturales reproductores de la desigualdad o generadores de violencia contra las mujeres.
+(ADICIONADO, P.O. 7 DE NOVIEMBRE DE 2025)
+La Violencia mediática se ejerce por cualquier persona física o moral que utilice un medio de comunicación para producir y difundir contenidos que atentan contra la autoestima, salud, integridad, libertad y seguridad de las mujeres, niñas y adolescentes, que impide su desarrollo y que atenta contra la igualdad.

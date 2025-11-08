@@ -1,3 +1,5 @@
 (REFORMADO, P.O. 22 DE SEPTIEMBRE DE 2023)
 Artículo 8 Ter.
 Violencia digital contra las mujeres es todo acto o acción dolosa realizada mediante el uso de tecnologías de la información y la comunicación, por la que se exponga, distribuya, difunda, exhiba, transmita, comercialice, oferte, intercambie o comparta imágenes, audios o videos reales o simulados de contenido íntimo sexual de una persona sin su consentimiento, sin su aprobación o sin su autorización y que le cause daño psicológico, emocional, en cualquier ámbito de su vida privada o en su imagen propia.
+(ADICIONADO, P.O. 7 DE NOVIEMBRE DE 2025)
+También se considera violencia digital a cualquier acto doloso que causen daño a la intimidad, privacidad y dignidad de las mujeres, que se comentan por medio de tecnologías de la información y la comunicación, entendiendo estas últimas como aquellos recursos, herramientas y programas que se utilizan para procesar, administrar y compartir la información mediante diversos soportes tecnológicos. Esta será sancionada en la forma y términos que establece el Código Penal para el Estado de Tamaulipas.
