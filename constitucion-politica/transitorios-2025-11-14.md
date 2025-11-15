@@ -1,0 +1,3 @@
+P.O. 14 DE NOVIEMBRE DE 2025.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. 66-546 MEDIANTE EL CUAL SE REFORMAN LOS ARTÍCULOS 100, PÁRRAFO SEXTO; Y 120, DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
