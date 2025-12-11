@@ -1,0 +1,1 @@
+ARTÍCULO OCTAVO. En tanto se crea y entra en operación la Unidad Especializada en Combate al Secuestro y Extorsión prevista en este Decreto, la Fiscalía General de Justicia del Estado utilizará a la Unidad Especializada en Combate al Secuestro para la atención de los delitos materia de esta Ley, sin menoscabo de sus atribuciones vigentes.

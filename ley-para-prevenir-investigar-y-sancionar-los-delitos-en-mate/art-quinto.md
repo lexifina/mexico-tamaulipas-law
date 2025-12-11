@@ -1,0 +1,1 @@
+ARTÍCULO QUINTO. Las erogaciones necesarias para la implementación del presente Decreto, se cubrirán con cargo al presupuesto de los sujetos obligados; cualquier apoyo federal o convenio de colaboración deberá celebrarse conforme a la normativa aplicable y previa suficiencia presupuestaria.

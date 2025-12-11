@@ -1,0 +1,1 @@
+ARTÍCULO CUARTO. La Secretaría de Seguridad Pública del Estado de Tamaulipas, a partir de su entrada en vigor del presente Decreto, deberá habilitar, en un plazo que no exceda de 180 días naturales, el Centro Estatal de Atención a Denuncias por Extorsión y coordinarlo con las instancias federales competentes para no duplicar funciones ni recursos de la Federación.

@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO. Las autoridades competentes realizarán las adecuaciones normativas que resulten necesarias para asegurar y armonizar la legislación local con lo dispuesto en el presente Decreto y con la Ley General.

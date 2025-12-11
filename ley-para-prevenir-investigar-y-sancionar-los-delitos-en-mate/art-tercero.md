@@ -1,0 +1,1 @@
+ARTÍCULO TERCERO. La Fiscalía General de Justicia del Estado de Tamaulipas, a partir de su entrada en vigor del presente Decreto, contará con un plazo de 180 días naturales para crear o adecuar la Unidad Especializada en Delitos de Extorsión y para establecer protocolos de actuación y capacitación especializada.
