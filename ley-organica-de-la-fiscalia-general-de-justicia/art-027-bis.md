@@ -9,14 +9,17 @@ e) Unidad Especializada en la Investigación del Delito de Abuso de Autoridad.
 B. Coordinación General de Litigación:
 a) Coordinación de Litigación;
 b) Coordinación de Operación y Supervisión; y
-c) Dirección de Seguimiento a Medidas, Control Judicial y Amparos.
+(REFORMADO, P.O. 15 DE DICIEMBRE DE 2025)
+c) Dirección Jurídica y Amparos.
 C. Dirección de Administración;
 D. Coordinación de Comunicación Social y Enlace con Dependencias y Organismos;
 E. Dirección de Tecnologías, Sistemas y Soporte;
 F. Dirección de Prevención y Difusión; y
-G. Unidad de Inteligencia Financiera y Económica:
+(REFORMADO [N. DE E. ESTE PÁRRAFO], P.O. 15 DE DICIEMBRE DE 2025)
+G. Coordinación General de la Unidad de Inteligencia Financiera y Económica:
 a) (DEROGADO, P.O. 3 DE MAYO DE 2025)
 b) Dirección de Análisis de Información;
 c) Dirección de Análisis Forense; y
-d) Dirección Jurídica.
+(REFORMADO, P.O. 15 DE DICIEMBRE DE 2025)
+d) Dirección de Análisis Jurídico.
 Los servidores públicos titulares de las unidades administrativas señaladas en el apartado A, incisos a), c), d) y e), así como en el apartado a) y b), contarán con funciones de Ministerio Público, conforme a lo dispuesto por las fracciones VII y VIII, del artículo 6 de esta Ley.
