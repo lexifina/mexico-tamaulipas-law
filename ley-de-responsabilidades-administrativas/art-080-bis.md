@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 17 DE DICIEMBRE DE 2025)
+Artículo 80 Bis. Si el beneficio indebidamente obtenido u otorgado a que hacen referencia los artículos 52, segundo párrafo, y 54, segundo párrafo, de esta Ley, no excede el equivalente a cinco mil veces el valor diario de la Unidad de Medida y Actualización, y además se ha devuelto la cantidad entregada o depositada en demasía conforme al tabulador aplicable, la falta administrativa será considerada no grave.
+Capítulo III
+Sanciones por Faltas de particulares
