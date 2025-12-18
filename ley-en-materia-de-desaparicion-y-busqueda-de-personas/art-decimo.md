@@ -1,0 +1,1 @@
+ARTÍCULO DÉCIMO. La Comisión Estatal de Búsqueda de Personas deberá contar con la infraestructura tecnológica necesaria y comenzar a operar el Registro Estatal de Personas Desaparecidas y No Localizadas, de manera gradual conforme al presupuesto anual asignado.

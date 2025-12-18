@@ -1,0 +1,1 @@
+ARTÍCULO OCTAVO. Dentro de los sesenta días naturales siguientes a su integración, el Consejo Ciudadano, emitirá su Reglamento Interno. Asimismo, dentro de los noventa días naturales posteriores a su integración, el Consejo Ciudadano integrará el Comité de Evaluación y Seguimiento a que hace referencia la presente Ley.

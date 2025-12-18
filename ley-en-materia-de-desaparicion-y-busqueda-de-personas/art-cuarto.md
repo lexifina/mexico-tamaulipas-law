@@ -1,0 +1,1 @@
+ARTÍCULO CUARTO. Dentro de los siguientes noventa días naturales contados a partir de la entrada en vigor del presente Decreto, la Comisión Estatal de Búsqueda de Personas deberá emitir las disposiciones reglamentarias para dar cumplimiento a la presente Ley.

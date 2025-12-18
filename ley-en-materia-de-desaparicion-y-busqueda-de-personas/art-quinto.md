@@ -1,0 +1,1 @@
+ARTÍCULO QUINTO. La persona titular de la Comisión Estatal de Búsqueda, continuará en el cargo hasta en tanto no se realice una nueva designación por parte del Ejecutivo del Estado, en los términos previstos en la presente Ley.

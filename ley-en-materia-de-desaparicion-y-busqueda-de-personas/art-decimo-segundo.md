@@ -1,0 +1,1 @@
+ARTÍCULO DÉCIMO SEGUNDO. La Fiscalía General de Justicia del Estado contará con el término de noventa días naturales contados a partir de la entrada en vigor del presente Decreto, para adecuar su reglamentación, así como emitir la normatividad y los mecanismos de colaboración a que hace referencia la presente Ley.

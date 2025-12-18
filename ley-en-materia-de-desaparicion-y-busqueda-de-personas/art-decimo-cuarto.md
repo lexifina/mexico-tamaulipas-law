@@ -1,0 +1,1 @@
+ARTÍCULO DÉCIMO CUARTO. Dentro de los noventa días naturales contados a partir de la entrada en vigor del presente Decreto, la Fiscalía Especializada deberá contar con la integración de las áreas a que hace referencia el artículo 66 de la presente Ley.

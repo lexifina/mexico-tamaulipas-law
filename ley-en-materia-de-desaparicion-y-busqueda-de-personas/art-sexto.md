@@ -1,0 +1,1 @@
+ARTÍCULO SEXTO. Todos los actos jurídicos celebrados con anterioridad a la entrada en vigor del presente Decreto, por la Comisión Estatal de Búsqueda de Personas o por la Secretaría General de Gobierno, se entenderán vigentes hasta en tanto las partes acuerden lo contrario.

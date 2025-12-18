@@ -1,0 +1,3 @@
+ARTÍCULO TERCERO. Se abroga el Decreto Gubernamental mediante el cual se adscribe la Comisión Estatal de Búsqueda de Personas a la Secretaría General de Gobierno, publicado en el Periódico Oficial del Estado, Edición Vespertina, Número 126, de fecha 21 de octubre del 2021, así como la normatividad derivada del mismo.
+La Comisión Estatal de Búsqueda de Personas, continuará en funciones conforme a las atribuciones, obligaciones y competencias establecidas en el presente Decreto y conservará los recursos humanos, materiales, presupuestales y tecnológicos asignados para el ejercicio correspondiente.
+Asimismo, continuarán los procesos de búsqueda que se encuentren pendientes ejerciendo las atribuciones que esta Ley le confiere.

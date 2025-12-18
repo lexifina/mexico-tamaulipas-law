@@ -1,0 +1,1 @@
+ARTÍCULO DÉCIMO QUINTO. Dentro de los noventa días naturales contados a partir de la entrada en vigor del presente Decreto, la Fiscalía Especializada y la Comisión Estatal de Búsqueda de Personas, deberán transmitir entre sí la información de las Personas Desaparecidas o No Localizadas que correspondan al ámbito de su competencia.

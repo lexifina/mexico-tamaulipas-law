@@ -1,0 +1,1 @@
+ARTÍCULO NOVENO. El Sistema Estatal de Búsqueda deberá quedar conformado dentro de los treinta días naturales siguientes a la fecha de integración del Consejo Ciudadano. En la primera Sesión Ordinaria del Sistema Estatal, se deberán proponer para su análisis por parte de las autoridades responsables, los lineamientos y protocolos a que hace referencia la presente Ley.

@@ -1,0 +1,1 @@
+ARTÍCULO DÉCIMO OCTAVO. Los Institutos, Centros Forenses o cualquier autoridad que tenga a su cargo los servicios periciales y/o de identificación y resguardo forense en el Estado, deberán contar con la sistematización de sus bases de datos, registros o sistemas, en un plazo no mayor al año siguiente de la entrada en vigor del presente Decreto.

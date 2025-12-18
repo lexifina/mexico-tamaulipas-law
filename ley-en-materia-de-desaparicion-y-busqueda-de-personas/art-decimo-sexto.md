@@ -1,0 +1,1 @@
+ARTÍCULO DÉCIMO SEXTO. A partir de que se encuentre disponible la Base Nacional de Carpetas de Investigación, la Fiscalía Especializada contará con un plazo no mayor a treinta días hábiles para integrar su información.

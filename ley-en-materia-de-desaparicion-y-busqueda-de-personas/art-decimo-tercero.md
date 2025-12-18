@@ -1,0 +1,1 @@
+ARTÍCULO DÉCIMO TERCERO. La Fiscalía General de Justicia del Estado, en un plazo de noventa días naturales contados a partir de la entrada en vigor del presente Decreto, deberá actualizar todos aquellos registros y bases de datos vinculados con el Banco Nacional de Datos Forenses.
