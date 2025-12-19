@@ -1,0 +1,1 @@
+ARTÍCULO SEXTO. Los desastres y las emergencias que hayan ocurrido con anterioridad a la entrada en vigor de la Ley, se atenderán conforme a los recursos financieros y a las disposiciones administrativas vigentes a la fecha en que sucedieron.

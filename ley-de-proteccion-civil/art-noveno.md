@@ -1,0 +1,1 @@
+ARTÍCULO NOVENO. La Secretaría General de Gobierno, realizará las modificaciones a su estructura que sean necesarias para el cumplimiento de esta Ley en un plazo no mayor a 90 días a partir de la publicación del presente Decreto.

@@ -1,0 +1,8 @@
+LEY DE PROTECCIÓN CIVIL PARA EL ESTADO DE TAMAULIPAS
+Ley publicada en el Anexo al Número 152 del Periódico Oficial del Estado de Tamaulipas, el jueves 18 de diciembre de 2025.
+AMÉRICO VILLARREAL ANAYA, Gobernador Constitucional del Estado de Tamaulipas, a sus habitantes hace saber:
+Que el Honorable Congreso del Estado, ha tenido a bien expedir el siguiente Decreto:
+Al margen un sello que dice:- "Estados Unidos Mexicanos.- Gobierno de Tamaulipas.- Poder Legislativo.
+LA LEGISLATURA SESENTA Y SEIS CONSTITUCIONAL DEL CONGRESO DEL ESTADO LIBRE Y SOBERANO DE TAMAULIPAS, EN USO DE LAS FACULTADES QUE LE CONFIEREN LOS ARTÍCULOS 58, FRACCIÓN I DE LA CONSTITUCIÓN POLÍTICA LOCAL; Y 119 DE LA LEY SOBRE LA ORGANIZACIÓN Y FUNCIONAMIENTO INTERNOS DEL CONGRESO DEL ESTADO LIBRE Y SOBERANO DE TAMAULIPAS, TIENE A BIEN EXPEDIR EL SIGUIENTE:
+D E C R E T O No. 66-911
+MEDIANTE EL CUAL SE EXPIDE LA LEY DE PROTECCIÓN CIVIL PARA EL ESTADO DE TAMAULIPAS.

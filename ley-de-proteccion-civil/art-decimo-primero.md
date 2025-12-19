@@ -1,0 +1,1 @@
+ARTÍCULO DÉCIMO PRIMERO. Para efecto del Capítulo I, del Título Sexto del presente Decreto, la Secretaría General de Gobierno, tendrá un plazo de 180 días para emitir las reglas de distribución de víveres y los lineamientos de fomento de la cultura de Protección Civil, a partir de la publicación del presente Decreto.

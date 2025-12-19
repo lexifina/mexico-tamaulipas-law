@@ -1,0 +1,1 @@
+ARTÍCULO SÉPTIMO. El Sistema Estatal de Protección Civil, así como el Consejo Estatal de Protección Civil, deberán quedar instalados en un plazo no mayor a 60 días a partir de la publicación del presente Decreto.

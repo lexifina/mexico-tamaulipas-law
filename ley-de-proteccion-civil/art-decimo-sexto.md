@@ -1,0 +1,1 @@
+ARTÍCULO DÉCIMO SEXTO. Las direcciones y secretarías de los municipios, destinadas a la atención de la materia de Protección Civil, pasarán a la denominación de coordinaciones municipales de Protección Civil, y sus recursos humanos, materiales y financieros serán trasladados a dicha coordinación.

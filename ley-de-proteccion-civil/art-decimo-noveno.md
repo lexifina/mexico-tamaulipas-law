@@ -1,0 +1,6 @@
+ARTÍCULO DÉCIMO NOVENO. La Secretaría General de Gobierno, la Secretaría Anticorrupción y Buen Gobierno y la Coordinación Estatal de Protección Civil, realizarán las modificaciones necesarias a los recursos humanos, materiales y financieros para dar cumplimiento al presente Decreto, con base en el presupuesto asignado para el presente ejercicio fiscal.
+ARTÍCULO VIGÉSIMO. Los procedimientos de sanciones o infracciones iniciados previo a la entrada en vigor del presente Decreto, concluirán conforme a la legislación vigente al momento de su inicio.
+SALÓN DE SESIONES DEL CONGRESO DEL ESTADO LIBRE Y SOBERANO DE TAMAULIPAS.- Cd. Victoria, Tam., a 15 de diciembre del año 2025.- DIPUTADA PRESIDENTA.- EVA ARACELI REYES GONZÁLEZ.- Rúbrica.- DIPUTADO SECRETARIO.- JUAN CARLOS ZERTUCHE ROMERO.- Rúbrica.- DIPUTADA SECRETARIA.- PATRICIA MIREYA SALDÍVAR CANO.- Rúbrica."
+Por tanto, mando se imprima, publique, circule y se le dé el debido cumplimiento.
+Dado en la residencia del Poder Ejecutivo, en Victoria, Capital del Estado de Tamaulipas, a los quince días del mes de diciembre del año dos mil veinticinco.
+ATENTAMENTE.- EL GOBERNADOR CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE TAMAULIPAS.- AMÉRICO VILLARREAL ANAYA.- Rúbrica.- EL SECRETARIO GENERAL DE GOBIERNO.- HÉCTOR JOEL VILLEGAS GONZÁLEZ.- Rúbrica.

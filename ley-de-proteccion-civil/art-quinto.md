@@ -1,0 +1,1 @@
+ARTÍCULO QUINTO. La implementación de la Ley de Protección Civil para el Estado de Tamaulipas, que se expide mediante el presente Decreto, se realizará conforme a la disponibilidad presupuestal y al presupuesto asignado en cada ejercicio fiscal.

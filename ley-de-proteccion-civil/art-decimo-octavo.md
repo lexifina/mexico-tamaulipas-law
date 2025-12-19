@@ -1,0 +1,1 @@
+ARTÍCULO DÉCIMO OCTAVO. Los municipios del Estado deberán emitir el reglamento interno de su Coordinación de Protección Civil, en un plazo que no podrá exceder de 90 días contados a partir de la entrada en vigor del presente Decreto.

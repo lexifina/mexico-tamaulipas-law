@@ -1,0 +1,1 @@
+ARTÍCULO DÉCIMO QUINTO. Los municipios realizarán las modificaciones necesarias a los recursos humanos, materiales y financieros para dar cumplimiento al presente Decreto, con base en su capacidad presupuestal.

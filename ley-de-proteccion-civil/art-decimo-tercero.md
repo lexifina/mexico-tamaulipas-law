@@ -1,0 +1,1 @@
+ARTÍCULO DÉCIMO TERCERO. La profesionalización de las personas servidoras públicas será en etapas, de conformidad con las reglas que para tal efecto determine la Secretaría General de Gobierno y deberá concluirse en un plazo que no podrá exceder de 3 años contados a partir de la entrada en vigor del presente Decreto.

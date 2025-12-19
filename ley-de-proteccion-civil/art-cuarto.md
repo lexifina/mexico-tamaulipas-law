@@ -1,0 +1,1 @@
+ARTÍCULO CUARTO. El Gobierno del Estado y los Ayuntamientos deberán efectuar, en el ámbito de sus respectivas competencias, los ajustes correspondientes en sus reglamentos y demás normas en un plazo que no exceda de 90 días contados a partir de la entrada en vigor del presente Decreto.

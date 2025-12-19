@@ -1,0 +1,1 @@
+ARTÍCULO DÉCIMO SEGUNDO. El Ejecutivo Estatal en coordinación con la Secretaría de Finanzas, establecerá las reglas de operación y montos para la creación del Fondo Estatal de Protección Civil en un plazo no mayor a 180 días a partir de la publicación del presente Decreto.

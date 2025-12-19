@@ -1,0 +1,1 @@
+ARTÍCULO DÉCIMO CUARTO. Se asignará de acuerdo a la capacidad presupuestal, recursos para el Fondo Estatal de Protección Civil, el cual será progresivo y hasta por el máximo que se establezca en su respectivo Decreto de creación.

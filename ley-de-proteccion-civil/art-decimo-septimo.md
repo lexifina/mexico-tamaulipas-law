@@ -1,0 +1,1 @@
+ARTÍCULO DECIMO SÉPTIMO. Los terceros acreditados contarán con un plazo de un año, a partir de la publicación del presente Decreto para acreditar la capacitación correspondiente de conformidad con lo dispuesto en la presente Ley.

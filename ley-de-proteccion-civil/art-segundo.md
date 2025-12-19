@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO. Se abroga la Ley de Protección Civil para el Estado de Tamaulipas, expedida mediante Decreto número 427, del 23 de mayo del 2001 y publicada en el Periódico Oficial del Estado, número 67, de fecha 5 de junio de 2001.
