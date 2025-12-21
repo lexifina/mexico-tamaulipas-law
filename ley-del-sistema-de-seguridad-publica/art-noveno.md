@@ -1,0 +1,1 @@
+ARTÍCULO NOVENO. Los asuntos que se encuentren en trámite a la entrada en vigor del presente Decreto se resolverán conforme a las disposiciones legales vigentes al momento de inicio de su tramitación.

@@ -1,0 +1,1 @@
+ARTÍCULO CUARTO. La Fiscalía General de Justicia del Estado de Tamaulipas, deberá realizar las adecuaciones normativas necesaria (sic), a efecto de dar cumplimiento a lo establecido en el presente Decreto, las cuales deberán quedar concluidas en un plazo no mayor a 120 días naturales contados a partir de la entrada en vigor del presente Decreto.

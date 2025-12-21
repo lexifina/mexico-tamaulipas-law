@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO. Se abroga la Ley de Coordinación del Sistema de Seguridad Pública del Estado de Tamaulipas, expedida mediante Decreto LX-710, por la Sexagésima Legislatura Constitucional del Congreso del Estado Libre y Soberano de Tamaulipas, publicado en el Periódico Oficial del Estado No. 71, el 16 de junio de 2009.

@@ -1,0 +1,1 @@
+ARTÍCULO DÉCIMO. El Secretariado Ejecutivo del Sistema Estatal de Seguridad Pública deberá integrar el Sistema Estatal de Información en u (sic) plazo no mayor a 120 días naturales contados a partir de la entrada en vigor del presente Decreto.
