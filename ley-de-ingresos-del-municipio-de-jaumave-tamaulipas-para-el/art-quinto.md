@@ -1,0 +1,5 @@
+ARTÍCULO QUINTO. El Ayuntamiento, para el ejercicio fiscal 2026, deberá atender a la brevedad, lo dispuesto por la Ley de Disciplina Financiera de las Entidades Federativas y Los Municipios, en relación con lo dispuesto por el Capítulo II "Del Balance Presupuestario Sostenible y la Responsabilidad Hacendaria de los Municipios", y lo que le apliquen de acuerdo al artículo 21 de la Ley citada.
+SALÓN DE SESIONES DEL CONGRESO DEL ESTADO LIBRE Y SOBERANO DE TAMAULIPAS.- Cd. Victoria, Tam., a 15 de diciembre del año 2025.- DIPUTADA PRESIDENTA.- EVA ARACELI REYES GONZÁLEZ.- Rúbrica.- DIPUTADO SECRETARIO.- JUAN CARLOS ZERTUCHE ROMERO.- Rúbrica.- DIPUTADA SECRETARIA.- PATRICIA MIREYA SALDÍVAR CANO.- Rúbrica."
+Por tanto, mando se imprima, publique, circule y se le dé el debido cumplimiento.
+Dado en la residencia del Poder Ejecutivo, en Victoria, Capital del Estado de Tamaulipas, a los quince días del mes de diciembre del año dos mil veinticinco.
+ATENTAMENTE.- EL GOBERNADOR CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE TAMAULIPAS.- AMÉRICO VILLARREAL ANAYA.- Rúbrica.- EL SECRETARIO GENERAL DE GOBIERNO.- HÉCTOR JOEL VILLEGAS GONZÁLEZ.- Rúbrica.
