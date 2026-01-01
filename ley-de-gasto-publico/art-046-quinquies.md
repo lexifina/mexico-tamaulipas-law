@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 16 DE DICIEMBRE DE 2025)
+ARTICULO 46 Quinquies.- El Ejecutivo del Estado, por conducto de la Secretaría de Finanzas, podrá asignar los recursos que se obtengan con exceso de lo previsto en la Ley de Ingresos del Estado, lo anterior, deberá realizarse de manera estricta, de conformidad con los artículos 13 y 14 de la Ley de Disciplina Financiera de las Entidades Federativas y los Municipios.

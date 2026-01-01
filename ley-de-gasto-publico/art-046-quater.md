@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 16 DE DICIEMBRE DE 2025)
+ARTICULO 46 Quater.- El Ejecutivo del Estado, por conducto de la Secretaría de Finanzas, podrá efectuar reducciones a los montos de los presupuestos aprobados para el ejercicio fiscal en curso, cuando se presenten contingencias que repercutan en una disminución de los ingresos presupuestados, así como las que se deriven de la aplicación de medidas de austeridad, racionalidad y atención a renglones prioritarios.
+Lo anterior, se ajustará a lo dispuesto en los artículos 13, fracción VI y 15 de la Ley de Disciplina Financiera de las Entidades Federativas y los Municipios.

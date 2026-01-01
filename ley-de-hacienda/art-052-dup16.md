@@ -1,3 +1,4 @@
+(DEROGADO SEGUNDO PÁRRAFO, P.O. 16 DE DICIEMBRE DE 2025)
 (ADICIONADO, P.O. 23 DE DICIEMBRE DE 2023)
 Artículo 52 Tertricies.- Para efectos de lo establecido en la Sección I de este Capítulo, en los procesos en que se utilice la combustión de gas natural, el contribuyente gozará de un estímulo consistente en una reducción del pago de su contribución, conforme a la siguiente tabla:
 Ejercicio fiscalPorcentaje de reducción sobre
@@ -22,4 +23,3 @@ con gas natural
 204050
 20410
 Para la procedencia del estímulo, los contribuyentes deberán informar en su Libro de Registro de Emisiones la cantidad de toneladas de bióxido de carbono equivalente generadas por el uso de gas natural, así como la metodología utilizada para su cuantificación. De igual manera, deberá conservar la documentación que ampare la metodología empleada para el cálculo de las emisiones.
-Los contribuyentes que opten por realizar la aplicación del estímulo fiscal señalado en este artículo, no podrán aplicar adicionalmente la exención señalada en el artículo 52 Quatertricies. Una vez que el contribuyente elija la opción de aplicación del estímulo fiscal, no podrá cambiar la opción elegida durante el ejercicio fiscal que corresponda.

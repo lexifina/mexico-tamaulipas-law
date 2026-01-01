@@ -3,3 +3,4 @@ SALÓN DE SESIONES DEL CONGRESO DEL ESTADO LIBRE Y SOBERANO DE TAMAULIPAS.- Cd. 
 Por tanto, mando se imprima, publique, circule y se le dé el debido cumplimiento.
 Dado en la residencia del Poder Ejecutivo, en Victoria, Capital del Estado de Tamaulipas, a los dieciséis días del mes de diciembre del año dos mil veinticuatro.
 ATENTAMENTE.- EL GOBERNADOR CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE TAMAULIPAS.- AMÉRICO VILLARREAL ANAYA.- Rúbrica.- EL SECRETARIO GENERAL DE GOBIERNO.- HÉCTOR JOEL VILLEGAS GONZÁLEZ.- Rúbrica.
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
