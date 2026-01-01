@@ -1,0 +1,1 @@
+ARTÍCULO CUARTO. Se anexa al presente Decreto, la información inherente al cumplimiento de lo dispuesto en la Ley de Disciplina Financiera de las Entidades Federativas y los Municipios, y en la Ley General de Contabilidad Gubernamental.
