@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 16 DE ENERO DE 2026)
+ARTÍCULO DÉCIMO OCTAVO. La Secretaría Anticorrupción y Buen Gobierno del Estado de Tamaulipas, a través de las unidades administrativas correspondientes, deberá realizar las acciones legales, administrativas, fiscales y otras de naturaleza análoga que resulten necesarias para concluir el proceso de liquidación del Instituto de Transparencia de Acceso a la Información y de Protección de Datos Personales del Estado de Tamaulipas.

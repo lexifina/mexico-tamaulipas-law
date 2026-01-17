@@ -1,0 +1,3 @@
+P.O. 16 DE ENERO DE 2026.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. 66-951 MEDIANTE EL CUAL SE REFORMA EL ARTÍCULO 4, NUMERAL 1, DE LA LEY PARA PREVENIR Y ERRADICAR LA DISCRIMINACIÓN EN EL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.

@@ -1,0 +1,7 @@
+(ADICIONADO, P.O. 16 DE ENERO DE 2026)
+ARTÍCULO DÉCIMO NOVENO. La Secretaría Anticorrupción y Buen Gobierno del Estado de Tamaulipas, a través de su Dirección Administrativa dará cumplimiento a las obligaciones fiscales que se encuentren pendientes por cubrir ante el Servicio de Administración Tributaria de la Secretaría de Hacienda y Crédito Público y posteriormente se llevará a cabo el proceso de baja y/o cancelación del Registro Federal de Contribuyentes del Instituto de Transparencia de Acceso a la Información y de Protección de Datos Personales del Estado de Tamaulipas.
+SALÓN DE SESIONES DEL CONGRESO DEL ESTADO LIBRE Y SOBERANO DE TAMAULIPAS.- Cd. Victoria, Tam., a 08 de julio del año 2025.- DIPUTADO PRESIDENTE.- FRANCISCO HERNÁNDEZ NIÑO.- Rúbrica.- DIPUTADA SECRETARIA.- ANA LAURA HUERTA VALDOVINOS.- Rúbrica.- DIPUTADA SECRETARIA.- PATRICIA MIREYA SALDÍVAR CANO.- Rúbrica."
+Por tanto, mando se imprima, publique, circule y se le dé el debido cumplimiento.
+Dado en la residencia del Poder Ejecutivo, en Victoria, Capital del Estado de Tamaulipas, a los nueve días del mes de julio del año dos mil veinticinco.
+ATENTAMENTE.- EL GOBERNADOR CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE TAMAULIPAS.- AMÉRICO VILLARREAL ANAYA.- Rúbrica.- EL SECRETARIO GENERAL DE GOBIERNO.- HÉCTOR JOEL VILLEGAS GONZÁLEZ.- Rúbrica.
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
