@@ -1,0 +1,3 @@
+P.O. 28 DE ENERO DE 2026.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. 66-958 MEDIANTE EL CUAL SE REFORMA LA FRACCIÓN IX, DEL ARTÍCULO 17, Y EL PÁRRAFO PRIMERO DEL ARTÍCULO 39, DE LA LEY DE SALUD PARA EL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
