@@ -24,8 +24,8 @@ X.- Clasificación Administrativa: Tiene como objetivo principal identificar las
 X.- Bis.- Clasificación Programática: Establece la clasificación de los programas presupuestarios de los entes públicos, que permitirá organizar, en forma representativa y homogénea, las asignaciones de recursos de los programas presupuestarios;
 (REFORMADA, P.O. 15 DE NOVIEMBRE DE 2016)
 XI.- Coordinador de Sector: Es la dependencia que designa el Gobernador del Estado conforme a la Ley Orgánica de la Administración Pública del Estado, para coordinar la planeación, programación, presupuestación, ejercicio, evaluación y seguimiento del gasto de aquellas entidades que estén ubicadas en el sector bajo su coordinación;
-(REFORMADA, P.O. 15 DE NOVIEMBRE DE 2016)
-XII.- Contraloría: Contraloría Gubernamental;
+(REFORMADA, P.O. 12 DE FEBRERO DE 2026)
+XII.- Secretaría Anticorrupción y Buen Gobierno: La Secretaría Anticorrupción y Buen Gobierno;
 (REFORMADA, P.O. 15 DE NOVIEMBRE DE 2016)
 XIII.- Cuenta Pública: Es el Informe a que se refiere la Ley de Fiscalización y Rendición de Cuentas para el Estado de Tamaulipas;
 (REFORMADA, P.O. 15 DE NOVIEMBRE DE 2016)

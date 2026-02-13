@@ -1,0 +1,1 @@
+ARTÍCULO DÉCIMO SEGUNDO. Las nuevas obligaciones derivadas de la aplicación de la presente Ley, para el Poder Ejecutivo, sus Dependencias, y Entidades, se realizarán con base en la capacidad presupuestal.

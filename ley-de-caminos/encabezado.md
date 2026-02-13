@@ -1,5 +1,4 @@
 LEY DE CAMINOS DEL ESTADO DE TAMAULIPAS
-[N. DE E. LA FE DE ERRATAS PUBLICADA EN EL P.O. EL 23 DE MAYO DE 2023 NO APLICA AL ARTICULADO DEL DECRETO NO. 65-577 PUBLICADO EN EL P.O. DE 17 DE MAYO DE 2023.]
 Ley publicada en el Periódico Oficial del Estado de Tamaulipas, el martes 18 de noviembre de 2008.
 EUGENIO HERNÁNDEZ FLORES, Gobernador Constitucional del Estado Libre y Soberano de Tamaulipas, a sus habitantes hace saber:
 Que el Honorable Congreso del Estado, ha tenido a bien expedir el siguiente Decreto:
