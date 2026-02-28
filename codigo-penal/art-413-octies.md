@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 27 DE FEBRERO DE 2026)
+ARTÍCULO 413 Octies.- Tratándose del delito de abigeato, cuando se demuestre plenamente que quien se apodere por primera vez de una sola cabeza de ganado y la emplee para su alimentación o la de su familia, se le impondrá una multa de cinco a cien Unidades de Medida y Actualización, o en su caso, el pago equivalente al valor comercial del bien.
+Para la aplicación de las sanciones previstas en los artículos 413 Septies y 413 Octies de este Código, las juezas, jueces y tribunales tendrán en cuenta, además de las reglas previstas para dichos artículos, la importancia del daño causado, en relación con las condiciones económicas del ofendido.
