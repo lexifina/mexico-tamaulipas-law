@@ -1,8 +1,8 @@
 (REFORMADO, P.O. 23 DE JUNIO DE 2016)
 ARTICULO 337 BIS.- Comete el delito de feminicidio quien prive de la vida a una mujer por razones de género. Se considera que existen razones de género cuando concurra alguna de las siguientes circunstancias:
 I.- La víctima presente signos de violencia sexual de cualquier tipo;
-(REFORMADA, P.O. 13 DE JUNIO DE 2023)
-II.- El cuerpo o los restos de la víctima presenten heridas, traumatismos, escoriaciones, contusiones, decapitamiento, desollamiento, fracturas, dislocaciones, cortes, quemaduras, signos de asfixia, estrangulamiento, tortura, desmembramiento de partes del cuerpo o cualquier tipo de lesiones o mutilaciones, internas o externas, infamantes o degradantes, previas o posteriores a la privación de la vida o actos de necrofilia;
+(REFORMADA, P.O. 27 DE FEBRERO DE 2026)
+II.- El cuerpo o los restos de la víctima presenten heridas, traumatismos, escoriaciones, contusiones, decapitamiento, desollamiento, fracturas, dislocaciones, cortes, quemaduras, laceraciones químicas ocasionadas por ácido o sustancia corrosiva, cáustica, irritante, tóxica o inflamable, signos de asfixia, estrangulamiento, tortura, desmembramiento de partes del cuerpo o cualquier tipo de lesiones o mutilaciones, internas o externas, infamantes o degradantes, previas o posteriores a la privación de la vida o actos de necrofilia;
 (REFORMADA, P.O. 13 DE JUNIO DE 2023)
 III.- Existan antecedentes, indicios o datos, denunciados o no, de cualquier tipo de violencia en el ámbito familiar, laboral, digital, escolar, institucional, política o comunitaria del sujeto activo en contra de la víctima;
 (REFORMADA, P.O. 13 DE JUNIO DE 2023)

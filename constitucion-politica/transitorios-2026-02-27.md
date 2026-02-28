@@ -1,0 +1,3 @@
+P.O. 27 DE FEBRERO DE 2026.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. 66-978 MEDIANTE EL CUAL SE REFORMA EL ARTÍCULO 17, FRACCIÓN VII Y SE DEROGA EL ARTÍCULO 17 TER, DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.

@@ -1,5 +1,4 @@
 LEY DE GANADERÍA PARA EL ESTADO DE TAMAULIPAS
-[N. DE E. LA FE DE ERRATAS PUBLICADA EN EL P.O. EL 20 DE JUNIO DE 2025 NO APLICA AL ARTICULADO DEL DECRETO NÚMERO 63-325 PUBLICADO EN EL P.O. DE 17 DE JUNIO DE 2025.]
 Ley publicada en el Número 30 del Periódico Oficial del Estado de Tamaulipas, el jueves 7 de marzo de 2024.
 AMÉRICO VILLARREAL ANAYA, Gobernador Constitucional del Estado de Tamaulipas, a sus habitantes hace saber:
 Que el Honorable Congreso del Estado, ha tenido a bien expedir el siguiente Decreto:
