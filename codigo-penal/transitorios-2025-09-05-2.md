@@ -1,3 +1,0 @@
-P.O. 5 DE SEPTIEMBRE DE 2025.
-[N. DE E. TRANSITORIO DEL "DECRETO NO. 66-445 MEDIANTE EL CUAL SE ADICIONA EL ARTÍCULO 407 BIS; Y SE DEROGA LA FRACCIÓN XIX, AL ARTÍCULO 407, DEL CÓDIGO PENAL PARA EL ESTADO DE TAMAULIPAS".]
-ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.

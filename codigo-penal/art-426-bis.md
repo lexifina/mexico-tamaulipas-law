@@ -1,2 +1,0 @@
-(ADICIONADO, P.O. 5 DE SEPTIEMBRE DE 2025)
-ARTICULO 426 Bis. Se equipara al delito de extorsión y se sancionará con las mismas penas al que comparta archivos, imágenes, videos e información privada, inclusive material digital alterado por programas de inteligencia artificial, por cualquier medio digital, red social, aplicaciones o grupos de comunicación, con la finalidad de obtener un lucro o perjudicar a la víctima o a terceras personas en su honor, dignidad, reputación, buen nombre, privacidad e intimidad.

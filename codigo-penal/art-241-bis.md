@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 1 DE JULIO DE 2021)
+Artículo 241 Bis.- Se equipara a la falsificación de documentos privados y se impondrán de seis meses a cuatro años de prisión y multa de ciento cincuenta a doscientos cincuenta Unidades de Medida y Actualización, al que por cualquier medio, obligue o condicione a un trabajador a firmar documentación en blanco, en la contratación o en cualquier momento de la relación laboral, que implique renuncia de sus derechos o le imponga obligaciones a fin de vulnerarlos o anularlos.

@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 10 DE JUNIO DE 2019)
+Artículo 219 Quinquies.- Se impondrán de tres a nueve años de prisión y de mil a dos mil quinientas Unidades de Medida y Actualización al que permita que se intitulen bajo su nombre, bienes o derechos adquiridos con recursos, derechos o bienes que procedan o representen el producto de una actividad ilícita cuando haya tenido conocimiento previo de esta última circunstancia.
+Cuando la persona que realiza los actos jurídicos, con el resultado mencionado en el párrafo anterior, revele a la autoridad competente la identidad de quien haya aportado los recursos o de quien se conduzca como dueño, la pena podrá ser reducida hasta en dos terceras partes.

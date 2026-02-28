@@ -1,4 +1,0 @@
-P.O. 12 DE FEBRERO DE 2026.
-[N. DE E. TRANSITORIOS DEL "DECRETO NO. 66-965 MEDIANTE EL CUAL SE REFORMA EL ARTÍCULO 277, FRACCIÓN II; SE ADICIONAN LOS PÁRRAFOS SEXTO, SÉPTIMO, OCTAVO, NOVENO Y DÉCIMO AL ARTÍCULO 267; Y UN PÁRRAFO TERCERO AL ARTÍCULO 268; Y SE DEROGAN LOS PÁRRAFOS SEGUNDO Y QUINTO DEL ARTÍCULO 267, DEL CÓDIGO PENAL PARA EL ESTADO DE TAMAULIPAS".]
-ARTÍCULO PRIMERO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
-ARTÍCULO SEGUNDO. Se derogan todas aquellas disposiciones que se opongan a lo dispuesto en el presente Decreto.

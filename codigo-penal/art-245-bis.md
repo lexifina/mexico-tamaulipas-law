@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 29 DE MAYO DE 2020)
+Artículo 245 Bis.- Cuando las conductas descritas en el artículo anterior, se cometan en contra de médicos, cirujanos, personal de enfermería, y demás profesionistas o empleados del área de salubridad, durante el periodo que comprenda la declaración de una emergencia sanitaria o crisis de salud pública, se impondrán de dos a cinco años de prisión y multa de doscientas a quinientas unidades de medida y actualización.

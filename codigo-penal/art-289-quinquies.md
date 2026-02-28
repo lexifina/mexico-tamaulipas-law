@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 13 DE JULIO DE 2017)
+Artículo 289 Quinquies.- La oposición o negativa a la autoridad competente para tener libre e inmediato acceso al lugar donde haya motivos para creer que se pueda encontrar a una persona desaparecida, por parte del agente estatal responsable del mismo, será sancionada con la destitución de su cargo, comisión o empleo, sin perjuicio de la aplicación de las sanciones de los demás delitos en que pudiera incurrir con motivo de su conducta.

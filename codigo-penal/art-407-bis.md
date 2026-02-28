@@ -1,2 +1,0 @@
-(ADICIONADO, P.O. 5 DE SEPTIEMBRE DE 2025)
-ARTICULO 407 BIS.- La sanción que corresponda al responsable de robo simple se aumentará con cinco a quince años de prisión y una multa de ciento cuarenta a ciento ochenta veces el valor diario de la Unidad de Medida y Actualización, cuando el robo se cometa en perjuicio de alguna institución educativa pública o privada o inmueble destinado a esta actividad, según su gravedad.

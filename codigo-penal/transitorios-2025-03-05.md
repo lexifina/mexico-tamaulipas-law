@@ -1,3 +1,0 @@
-P.O. 5 DE MARZO DE 2025.
-[N. DE E. TRANSITORIO DEL "DECRETO NO. 66-249 MEDIANTE EL CUAL SE REFORMA EL PÁRRAFO SEXTO, INCISOS A), B) Y C), Y SE ADICIONAN LOS INCISOS D) Y E), AL ARTÍCULO 276 SEPTIES, DEL CÓDIGO PENAL PARA EL ESTADO DE TAMAULIPAS".]
-ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.

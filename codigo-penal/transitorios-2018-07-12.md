@@ -1,3 +1,4 @@
 P.O. 12 DE JULIO DE 2018.
-[N. DE E. TRANSITORIO DEL "DECRETO NO. LXIII-446 MEDIANTE EL CUAL SE REFORMA EL ARTÍCULO 296, PÁRRAFO PRIMERO, Y SE ADICIONAN LOS PÁRRAFOS CUARTO Y QUINTO, RECORRIÉNDOSE EL ACTUAL PÁRRAFO CUARTO PARA SER SEXTO AL ARTÍCULO 368 BIS, DEL CÓDIGO PENAL PARA EL ESTADO DE TAMAULIPAS".]
-ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 281 POR EL QUE SE "REFORMAN LOS ARTÍCULOS 381, 384 Y 385 DEL CÓDIGO PENAL DEL ESTADO DE CAMPECHE".]
+PRIMERO.- El presente decreto entrará en vigor a los quince días siguientes de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- Los procedimientos penales iniciados antes de la entrada en vigor del presente decreto, se sustanciarán de acuerdo con las disposiciones vigentes en el momento de la comisión del ilícito que corresponda.

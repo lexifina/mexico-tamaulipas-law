@@ -1,0 +1,12 @@
+(ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, P.O. 10 DE JUNIO DE 2019)
+CAPÍTULO IX BIS
+OPERACIONES CON RECURSOS DE PROCEDENCIA ILÍCITA
+(ADICIONADO, P.O. 10 DE JUNIO DE 2019)
+Artículo 219 BIS.- Se impondrá de cinco a quince años de prisión y de mil a cinco mil Unidades de Medida y Actualización al que, por sí o por interpósita persona, realice cualquiera de las siguientes conductas:
+I. Enajene, administre, custodie, posea, cambie, convierta, deposite, retire, dé, invierta, traspase, transporte o transfiera, dentro del territorio estatal, o de este hacia fuera o a la inversa, recursos, derechos o bienes de cualquier naturaleza, cuando tenga conocimiento de que proceden o representan el producto de una actividad ilícita,
+II. Oculte, encubra o pretenda ocultar o encubrir la naturaleza, origen, ubicación, destino, movimiento, propiedad o titularidad de recursos, derechos o bienes, cuando tenga conocimiento de que proceden o representan el producto de una actividad ilícita.
+Para efectos de lo dispuesto en este artículo, se entenderá que una persona tiene conocimiento de que los recursos, derechos o bienes proceden o representan el producto de una actividad ilícita, cuando:
+a) Existan los medios para conocer o prever que los recursos, derechos o bienes proceden o representan el producto de una actividad ilícita o de un acto de participación en ella, basado en las circunstancias del bien, de la operación o de los sujetos involucrados y elementos objetivos acreditables en el caso concreto, y no los agota pudiendo hacerlo;
+b) Realice actos u operaciones a nombre de un tercero, sin el consentimiento de este, o sin título jurídico que lo justifique y no se actualice la gestión de negocios en términos de la legislación civil aplicable.
+Para efectos de este Capítulo se entenderá que son producto de una actividad ilícita, los recursos, derechos o bienes de cualquier naturaleza, cuando existan indicios fundados o certeza de que provienen directa o indirectamente o representan las ganancias derivadas de la comisión de algún delito, o no pueda acreditarse su legítima procedencia.
+Cuando la autoridad competente, en ejercicio de sus facultades de fiscalización, encuentre elementos que permitan presumir la comisión de alguno de los delitos referidos en este Capítulo deberá ejercer, respecto de estos, las facultades de comprobación que le confieren las leyes y denunciar los hechos que puedan constituir dicho ilícito.

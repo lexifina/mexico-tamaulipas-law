@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 14 DE SEPTIEMBRE DE 2015)
+Artículo 352 Ter.- Procederá el decomiso de las bebidas alcohólicas, siempre que éstas no hayan sido aseguradas por la autoridad administrativa competente, caso en el cual, el acta circunstanciada levantada por tal motivo, hará prueba de la preexistencia de dichas bebidas, cuyo documento en copia certificada, deberá ser puesto a disposición del agente investigador del Ministerio Público, a solicitud de éste.
+Una vez decretada la sentencia condenatoria y la misma haya causado ejecutoria, la autoridad jurisdiccional competente deberá poner de inmediato a disposición de la Secretaría de Finanzas, las bebidas alcohólicas y los envases decomisados para que ésta proceda a su destrucción o remate.

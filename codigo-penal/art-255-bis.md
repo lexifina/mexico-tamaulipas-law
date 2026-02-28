@@ -1,2 +1,0 @@
-(ADICIONADO, P.O. 9 DE JULIO DE 2025)
-ARTICULO 255 BIS.- Comete el delito de falsedad en informes contra la vigilancia y verificación ambiental el que asiente datos falsos en los registros, bitácoras o cualquier otro documento, con el propósito de simular el cumplimiento de las obligaciones derivadas de la normatividad ambiental del Estado o de los municipios, o destruya, altere u oculte información, registros, reportes o cualquier otro documento que sea indispensable mantener o archivar de conformidad con la propia normatividad ambiental.

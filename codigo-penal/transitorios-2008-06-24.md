@@ -1,3 +1,0 @@
-P.O. 24 DE JUNIO DE 2008.
-ARTICULO PRIMERO.- La presente Ley se publicará en el Periódico Oficial del Estado y entrará en vigor al día siguiente de su publicación.
-ARTICULO SEGUNDO.- Se abroga la Ley de Prevención, Atención y Asistencia a la Violencia Intrafamiliar expedida mediante Decreto 27, del 27 de mayo de 1999, de la Quincuagésima Séptima Legislatura, publicada en el Periódico Oficial del Estado número 45, con fecha 5 de junio de 1999, y sus reformas y adiciones contenidas en los Decretos LIX-547, del 9 de mayo de 2006 y publicado en el Periódico Oficial del Estado número 66, del 1 de junio de 2006; LIX-563, del 8 de agosto de 2006; y LIX-1084, del 3 de diciembre de 2007 y publicado en el Periódico Oficial del Estado número 4, del 8 de enero de 2008.

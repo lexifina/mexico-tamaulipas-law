@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 29 DE MAYO DE 2020)
+Artículo 345 Bis.- Cuando las conductas descritas en el artículo anterior, se cometan en contra de cualquier servidor público o empleado del Sistema Estatal de Salud, durante el periodo que comprenda la declaración de una emergencia sanitaria o crisis de salud pública, se impondrán de uno a tres años de prisión y multa de trescientas a quinientas unidades de medida y actualización.

@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 29 DE DICIEMBRE DE 2016)
+Artículo 315 Quáter.- A quien ejerciendo funciones de supervisor de libertad falsee informes o reportes al Juez de Ejecución se le impondrá pena de prisión de dos a cinco años y de cien a ciento cincuenta Unidades de Medida y Actualización.
+En caso de tratarse de particulares realizando funciones propias del supervisor de libertad, y con independencia de la responsabilidad penal individual de trabajadores o administradores, la organización podrá ser acreedora a las penas y medidas en materia de responsabilidad penal de las personas jurídicasestipuladas (sic) en este Código.

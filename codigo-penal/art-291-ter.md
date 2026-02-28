@@ -1,0 +1,10 @@
+(ADICIONADO CON EL ARTÍCULO QUE LO INTEGRA, P.O. 19 DE OCTUBRE DE 2022)
+CAPÍTULO IV BIS
+EJERCICIO ABUSIVO DE FUNCIONES
+(ADICIONADO, P.O. 19 DE OCTUBRE DE 2022)
+Artículo 291 Ter.- Comete el delito de ejercicio abusivo de funciones:
+I. El servidor público que en el desempeño de su empleo, cargo o comisión, ilícitamente otorgue por sí o por interpósita persona contratos, concesiones, permisos, licencias, autorizaciones, franquicias, exenciones o efectúo compras o ventas o realice cualquier acto jurídico que produzca beneficios económicos al propio servidor público, a su cónyuge, descendiente o ascendiente, parientes por consanguinidad o afinidad hasta el cuarto grado, concubina o concubinario, a cualquier tercero con el que tenga vínculos afectivos, económicos o de dependencia administrativa directa, socios o sociedades de las que el servidor público o las personas antes referidas formen parte;
+II. El servidor público que valiéndose de la información que posea por razón de su empleo, cargo o comisión, sea o no materia de sus funciones, y que no sea de conocimiento público, haga por sí, o por interpósita persona, inversiones, enajenaciones o adquisiciones, o cualquier otro acto que le produzca algún beneficio económico indebido al servidor público o a alguna de las personas mencionadas en la fracción que antecede.
+Al que cometa el delito de ejercicio abusivo de funciones se le impondrán las siguientes sanciones:
+Cuando la cuantía a que asciendan las operaciones a que hace referencia este artículo no exceda del equivalente a quinientas veces el valor diario de la Unidad de Medida y Actualización en el momento de cometerse el delito, se impondrán de tres meses a dos años de prisión y multa de treinta a cien Unidades de Medida y Actualización.
+Cuando la cuantía a que asciendan las operaciones a que hace referencia este artículo exceda de quinientas veces el valor diario de la Unidad de Medida y Actualización en el momento de cometerse el delito, se impondrán de dos años a doce años de prisión y multa de cien a ciento cincuenta Unidades de Medida y Actualización.

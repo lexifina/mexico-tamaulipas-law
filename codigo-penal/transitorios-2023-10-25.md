@@ -1,3 +1,0 @@
-P.O. 25 DE OCTUBRE DE 2023.
-[N. DE E. TRANSITORIO DEL "DECRETO NO. 65-664 MEDIANTE EL CUAL SE REFORMAN LOS ARTÍCULOS 58 Y 59; Y SE DEROGAN LOS ARTÍCULOS 61 Y 62, DEL CÓDIGO PENAL PARA EL ESTADO DE TAMAULIPAS".]
-ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.

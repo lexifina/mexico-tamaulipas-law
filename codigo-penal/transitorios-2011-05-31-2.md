@@ -1,3 +1,0 @@
-P.O. 31 DE MAYO DE 2011.
-DECRETO No. LXI-44, POR EL QUE SE REFORMA EL PRIMER PÁRRAFO Y SE ADICIONAN LOS PÁRRAFOS SEGUNDO, TERCERO Y CUARTO AL ARTÍCULO 363 DEL CÓDIGO PENAL PARA EL ESTADO DE TAMAULIPAS.
-ARTÍCULO ÚNICO: El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.

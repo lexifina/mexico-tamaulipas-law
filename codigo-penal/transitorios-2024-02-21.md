@@ -1,3 +1,0 @@
-P.O. 21 DE FEBRERO DE 2024.
-[N. DE E. TRANSITORIO DEL "DECRETO No. 65-814 MEDIANTE EL CUAL SE REFORMA EL ARTÍCULO 325 BIS; Y SE ADICIONAN LOS ARTÍCULOS 334 BIS Y 340 BIS AL CÓDIGO PENAL PARA EL ESTADO DE TAMAULIPAS".]
-ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.

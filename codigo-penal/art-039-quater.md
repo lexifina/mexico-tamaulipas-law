@@ -1,6 +1,0 @@
-(ADICIONADO, P.O. 21 DE ABRIL DE 2017)
-ARTICULO 39 QUATER.- Si varias personas toman parte en la realización de un delito determinado y alguno de ellos comete un delito distinto al acordado, todos serán responsables de éste, según su propia culpabilidad, cuando concurran los siguientes requisitos:
-I.- Que sirva de medio adecuado para cometer el principal;
-II.- Que sea una consecuencia necesaria o natural de aquél, o de los medios concertados;
-III.- Que hayan sabido antes que se iba a cometer; o
-IV.- Que cuando hayan estado presentes en su ejecución, no hayan hecho cuanto estaba de su parte para impedirlo.
