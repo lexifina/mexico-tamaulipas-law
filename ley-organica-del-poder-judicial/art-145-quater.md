@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 3 DE MARZO DE 2026)
+ARTÍCULO 145 QUATER.- Al concluir la evaluación se levantará por triplicado acta circunstanciada, en la cual se hará constar el desarrollo de la misma, las quejas y denuncias presentadas en contra de alguna persona servidora pública del órgano evaluado, las manifestaciones que realicen la persona titular, Secretaria o Secretario de Acuerdos o las y los funcionarios que se encuentren al cargo, así como la firma de éstos y la o el Evaluador Judicial.
+Una copia se entregará al titular del órgano evaluado, otra será remitida con el informe a la Comisión de Evaluación y Desempeño Judicial y, la tercera, se conservará en el Archivo del Órgano de Evaluación de Desempeño Judicial.
