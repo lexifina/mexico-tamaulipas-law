@@ -1,3 +1,1 @@
-(ADICIONADO, P.O. 13 DE JULIO DE 2017)
-Artículo 171 Bis.- A quien por cualquier medio de comunicación, fuera de los procedimientos judiciales establecidos en la ley, y empleando amenazas, intimidación u hostigamiento, realice reiteradamente requerimientos de pago, se impondrán de seis meses a cuatro años de prisión y multa de cien a mil unidades de medida y actualización.
-No se considerará ilegal informar sobre aquellas consecuencias posibles y jurídicamente válidas del impago o la capacidad de iniciar acciones legales en contra del deudor, aval, obligado solidario o cualquier tercero relacionado a éstos.
+ARTICULO 171 BIS.- (DEROGADO, P.O. 15 DE JUNIO DE 2011)

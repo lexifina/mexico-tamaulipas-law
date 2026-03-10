@@ -1,0 +1,5 @@
+P.O. 5 DE JUNIO DE 1999.
+DECRETO No. 23, POR EL QUE SE REFORMAN LOS ARTÍCULOS 45, 46, 108, 109, 232 Y 233, SE ADICIONAN LOS ARTÍCULOS 46 BIS, 108 BIS Y 258 BIS, Y SE MODIFICA LA DENOMINACIÓN DEL CAPÍTULO XIII DEL TÍTULO SEXTO DEL LIBRO PRIMERO, DEL CÓDIGO PENAL PARA EL ESTADO DE TAMAULIPAS.
+ARTICULO PRIMERO.- El presente Decreto entrará en vigor el día treinta de junio de mil novecientos noventa y nueve, previa su publicación en el Periódico Oficial del Estado.
+ARTICULO SEGUNDO.- A las personas cuyo proceso judicial se encuentre en trámite a la fecha de iniciación de la vigencia de este Decreto, en la sentencia podrán aplicárseles las penas sustitutivas previstas en la presente reforma legislativa, en caso de ser procedente.
+ARTICULO TERCERO.- Las personas que hubieren sido condenadas por sentencia ejecutoriada antes de la iniciación de vigencia de este Decreto y se encuentren en los supuestos de esta reforma legislativa, podrán promover la aplicación de penas sustitutivas mediante el incidente respectivo, en los términos del Código de Procedimientos Penales para el Estado.

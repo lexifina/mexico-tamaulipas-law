@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 9 DE MARZO DE 2026)
+ARTÍCULO 115 SEPTIES. Las y los participantes de los Municipios del Estado deberán presentar una propuesta legislativa que será recibida por las Comisiones de Participación Ciudadana y de Niñez, Adolescencia y Juventud, de manera directa o mediante correo electrónico. Todas las actuaciones que realicen las Comisiones deberán ser públicas y transmitirse a través de los medios oficiales del Poder Legislativo. Las Comisiones garantizarán la paridad de género. Los casos no previstos en la Ley, se resolverán a través de las Comisiones.
+La convocatoria establecerá el mecanismo de selección.

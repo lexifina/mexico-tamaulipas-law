@@ -1,0 +1,3 @@
+P.O. 12 DE OCTUBRE DE 2023.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. 65-656 MEDIANTE EL CUAL SE REFORMA EL ARTÍCULO 126, PÁRRAFO CUARTO; Y SE ADICIONA UN ARTÍCULO 198 BIS 1, AL CÓDIGO PENAL PARA EL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.

@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 9 DE MARZO DE 2026)
+ARTICULO 240 BIS.- Se le impondrá una sanción de cuatro a ocho años de prisión a quien realice un procedimiento médico quirúrgico enmarcado en el campo de la cirugía plástica en personas menores de dieciocho años de edad, exceptuando aquellos casos en los que la cirugía se encuentre justificada por dictamen médico especializado y evaluación psicológica, cuando la intervención sea necesaria para corregir malformaciones congénitas, secuelas de accidentes o anomalías fisiológicas que afecten la integridad física o psíquica del menor de edad.
+La sanción prevista en este artículo se incrementará hasta en una mitad más de su mínimo y máximo si el procedimiento pone en riesgo grave la vida o integridad del menor de edad.

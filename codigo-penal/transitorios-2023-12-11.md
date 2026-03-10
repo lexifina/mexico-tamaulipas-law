@@ -1,0 +1,3 @@
+P.O. 11 DE DICIEMBRE DE 2023.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. 65-743 MEDIANTE EL CUAL SE REFORMAN LOS ARTÍCULOS 274, PÁRRAFOS PRIMERO Y SEGUNDO; Y 275, PÁRRAFO ÚNICO, DEL CÓDIGO PENAL PARA EL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.

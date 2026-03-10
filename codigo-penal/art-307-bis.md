@@ -1,2 +1,0 @@
-(REFORMADO, P.O. 13 DE JULIO DE 2017)
-Artículo 307 Bis.- Se impondrán de cuatro a diez años de prisión y de cien a ciento cincuenta Unidades de Medida y Actualización al servidor público que dé a conocer a quien no tenga derecho, documentos, constancias o información que obren en una carpeta de investigación o en un proceso penal y que por disposición de la ley o resolución judicial, sean reservados o confidenciales.

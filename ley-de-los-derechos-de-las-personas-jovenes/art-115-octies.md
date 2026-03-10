@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 9 DE MARZO DE 2026)
+ARTÍCULO 115 OCTIES. Una vez concluido el Congreso Tamaulipeco de las Personas Jóvenes, el Instituto de Investigaciones Parlamentarias del Congreso del Estado, realizará el análisis de todas las propuestas, a fin de establecer la viabilidad de su incorporación al trabajo legislativo. Los análisis de viabilidad deberán estar fundados y motivados, incluyendo los considerados no viables.
+El Instituto de Investigaciones Parlamentarias pondrá a consideración de las comisiones las propuestas y el análisis de viabilidad correspondiente en un término no mayor de tres meses.

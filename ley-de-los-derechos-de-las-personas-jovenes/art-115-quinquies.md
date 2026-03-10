@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 9 DE MARZO DE 2026)
+ARTÍCULO 115 QUINQUIES. Las y los participantes del Congreso Tamaulipeco de las Personas Jóvenes, serán las y los jóvenes que cumplan con los requisitos que se estipulen en la convocatoria que emitan las Comisiones de Participación Ciudadana y de Niñez, Adolescencia y Juventud del Congreso del Estado de Tamaulipas.
+La selección de las y los jóvenes será representativa de cada uno los Municipios del Estado y cada uno de los Distritos Electorales. Podrán ser seleccionados las y los jóvenes que no hayan tenido la calidad de congresistas propietarios anteriormente. No podrán participar las y los servidores públicos de los tres órdenes de gobierno, ni órganos autónomos.

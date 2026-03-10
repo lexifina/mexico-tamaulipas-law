@@ -1,0 +1,5 @@
+(ADICIONADO CON EL ARTÍCULO QUE LO INTEGRA, P.O. 26 DE JUNIO DE 2014)
+CAPITULO XI
+CUMPLIMIENTO DEL CRITERIO DE OPORTUNIDAD O LA SOLUCION ALTERNA CORRESPONDIENTE
+(ADICIONADO, P.O. 26 DE JUNIO DE 2014)
+ARTICULO 142 SEXIES.- En los asuntos tramitados conforme al sistema procesal penal acusatorio, el cumplimiento de los criterios de oportunidad o la solución alterna correspondiente extinguen la acción, con todos sus efectos.
