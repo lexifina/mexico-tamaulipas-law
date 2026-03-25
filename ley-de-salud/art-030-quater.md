@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 24 DE MARZO DE 2026)
+ARTICULO 30 QUATER.- Los hospitales y clínicas del sector privado autorizados para realizar procedimientos obstétricos quirúrgicos que incumplan las disposiciones establecidas por la autoridad sanitaria competente, así como las personas responsables de su operación y funcionamiento, serán sujetos a la aplicación de las medidas de seguridad y sanciones que correspondan, en los términos previstos en esta ley y demás disposiciones aplicables.

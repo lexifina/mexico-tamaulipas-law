@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 24 DE MARZO DE 2026)
+ARTICULO 30 TER.- Los establecimientos de atención médica del sector privado, incluyendo hospitales y clínicas, que realicen procedimientos obstétricos quirúrgicos, deberán cumplir con los requisitos de infraestructura, equipamiento y recursos humanos necesarios para garantizar la atención integral, oportuna y segura de la madre y del recién nacido, conforme a las disposiciones que establezca la autoridad sanitaria competente, la normatividad aplicable y las Normas Oficiales Mexicanas.
