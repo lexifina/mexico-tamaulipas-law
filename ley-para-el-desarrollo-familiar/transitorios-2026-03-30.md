@@ -1,0 +1,3 @@
+P.O. 30 DE MARZO DE 2026.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. 66-1015 MEDIANTE EL CUAL SE REFORMA EL NUMERAL 2 DEL ARTÍCULO 2 DE LA LEY PARA EL DESARROLLO FAMILIAR DEL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.

@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 30 DE MARZO DE 2026)
+ART. 277 Bis.- Cuando se presenten casos de personas adultas mayores en situación de abandono, la autoridad judicial, en coordinación con el Ministerio Público y la Procuraduría de la Defensa del Adulto Mayor del Sistema para el Desarrollo Integral de la Familia del Estado de Tamaulipas, deberá, conforme a sus facultades, realizar el procedimiento para asegurar los alimentos previsto en el artículo 293 de este Código, además de ejercer la acción penal correspondiente, a fin de garantizar su debido cumplimiento.
