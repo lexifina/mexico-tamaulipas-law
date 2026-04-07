@@ -9,10 +9,11 @@ ARTÍCULO SEXTO. Los trabajadores que iniciaron cotizaciones con fecha anterior 
 ARTÍCULO SÉPTIMO. El trabajador en transición se dividirá en:
 I. Trabajador en transición de primera generación: cuando su fecha de inicio de cotización hubiese sido hasta el 31 de diciembre del año 2014.
 II. Trabajador en transición de segunda generación: cuando su fecha de inicio de cotización hubiese sido a partir del 1 de enero de 2015 y hasta antes de la entrada en vigor del presente Decreto.
-ARTÍCULO OCTAVO. Para los efectos a que se refiere la fracción XXV del artículo 5 de la Ley del Instituto de Previsión y Seguridad Social del Estado de Tamaulipas, el salario regulador de los trabajadores en transición de primera generación será el promedio del salario base sobre el que haya cotizado el trabajador ante el Fondo de Pensiones durante los últimos 4 años inmediatos anteriores a la fecha de su baja, previa actualización con base en el Índice Nacional de Precios al Consumidor, más la prestación de adquisición de víveres básicos o el concepto de despensa a que tuviera derecho, así como un porcentaje de la compensación o gratificación, compensación provisional compactable y del quinquenio con la que haya contribuido en fusión del año en que se reciba una pensión de acuerdo con la siguiente tabla:
-Porcentaje de la
-AñoCompensación y
-Quinqenio (sic)
+(REFORMADO, P.O. 6 DE ABRIL DE 2026)
+ARTÍCULO OCTAVO. Para los efectos a que se refiere la fracción XXV del artículo 5 de la Ley del Instituto de Previsión y Seguridad Social del Estado de Tamaulipas, el salario regulador de los trabajadores en transición de primera generación será el promedio del salario base sobre el que haya cotizado el trabajador ante el Fondo de Pensiones durante los últimos 4 años inmediatos anteriores a la fecha de su baja, previa actualización con base en el Índice Nacional de Precios al Consumidor, más la prestación de adquisición de víveres básicos o el concepto de despensa a que tuviera derecho, así como un porcentaje de la compensación o gratificación, compensación provisional compactable y del quinquenio con la que haya contribuido en función del año en que se reciba una pensión de acuerdo con la siguiente tabla:
+(REFORMADA, P.O. 6 DE ABRIL DE 2026)
+AñoPorcentaje de la
+Compensación y Quinquenio
 202613.33%
 202726.67%
 202840.00%
@@ -22,10 +23,11 @@ Quinqenio (sic)
 203284.00%
 203392.00%
 2034 en adelante100.00%
-ARTÍCULO NOVENO. Para los efectos a que se refiere la fracción XXV del artículo 5 de la Ley del Instituto de Previsión y Seguridad Social del Estado de Tamaulipas, el salario regulador de los trabajadores en transición de segunda generación será el promedio del salario base sobre el que haya cotizado el trabajador ante el Fondo de Pensiones durante los últimos 5 años inmediatos anteriores a la fecha de su baja, previa actualización con base en el Índice Nacional de Precios al Consumidor, más la prestación de adquisición de víveres básicos o el concepto de despensa a que tuviera derecho, así como un porcentaje de la compensación o gratificación, compensación provisional compactable y del quinquenio con la que haya contribuido en fusión del año en que se reciba una pensión de acuerdo con la siguiente tabla:
-Porcentaje de la
-AñoCompensación y
-Quinqenio (sic)
+(REFORMADO, P.O. 6 DE ABRIL DE 2026)
+ARTÍCULO NOVENO. Para los efectos a que se refiere la fracción XXV del artículo 5 de la Ley del Instituto de Previsión y Seguridad Social del Estado de Tamaulipas, el salario regulador de los trabajadores en transición de segunda generación será el promedio del salario base sobre el que haya cotizado el trabajador ante el Fondo de Pensiones durante los últimos 5 años inmediatos anteriores a la fecha de su baja, previa actualización con base en el Índice Nacional de Precios al Consumidor, más la prestación de adquisición de víveres básicos o el concepto de despensa a que tuviera derecho, así como un porcentaje de la compensación o gratificación, compensación provisional compactable y del quinquenio con la que haya contribuido en función del año en que se reciba una pensión de acuerdo con la siguiente tabla:
+(REFORMADA, P.O. 6 DE ABRIL DE 2026)
+AñoPorcentaje de la
+Compensación y Quinquenio
 202613.33%
 202726.67%
 202840.00%
@@ -36,11 +38,11 @@ Quinqenio (sic)
 203392.00%
 2034 en adelante100.00%
 ARTÍCULO DÉCIMO. Para los efectos a que se refiere el artículo 15 de la Ley del Instituto de Previsión y Seguridad Social del Estado de Tamaulipas, las aportaciones al Fondo de Pensiones a cargo de las Entidades Públicas serán de un porcentaje del salario base, prestación de adquisición de víveres básicos o despensa, quinquenio, compensación o gratificación y la compensación provisional compactable que reciba el trabajador en transición que tuvieran a su cargo de acuerdo con la siguiente tabla:
-Porcentaje
-Adquisición de víveres
-AñoSalario Basebásicos, Quinquenio,
-Compensación y
-Gratificación Anual
+(REFORMADA, P.O. 6 DE ABRIL DE 2026)
+AñoPorcentaje
+Salario BaseAdquisición de víveres básicos,
+Quinquenio, Compensación o
+Gratificación
 202621.50%3.00%
 202721.50%6.00%
 202821.50%9.00%
@@ -49,18 +51,19 @@ Gratificación Anual
 203121.50%18.00%
 203221.50%21.00%
 203324.00%24.00%
-4 en adelante27.00%27.00%
+2034 en adelante27.00%27.00%
 ARTÍCULO DÉCIMO PRIMERO. Para los efectos a que se refiere el artículo 16 de la Ley del Instituto de Previsión y Seguridad Social del Estado de Tamaulipas, las cuotas al Fondo de Pensiones a cargo del trabajador en transición serán de un porcentaje del salario base, prestación de adquisición de víveres básicos o despensa, quinquenio y compensación o gratificación y la compensación provisional compactable que reciba de acuerdo con la siguiente tabla:
-Porcentaje
-Adquisición de víveres
-AñoSalario Basebásicos, Quinquenio y
-Compensación
+(REFORMADA, P.O. 6 DE ABRIL DE 2026)
+AñoPorcentaje
+Salario BaseAdquisición de víveres básicos,
+Quinquenio, Compensación o
+Gratificación
 202610.50%2.00%
 202710.50%4.00%
 202810.50%6.00%
 202910.50%8.00%
 203010.50%10.00%
-1 en adelante10.50%10.50%
+2031 en adelante10.50%10.50%
 ARTÍCULO DÉCIMO SEGUNDO. Para los efectos a que se refiere del numeral 9 del artículo 52 de la Ley del Instituto de Previsión y Seguridad Social del Estado de Tamaulipas, el monto de la pensión por incapacidad total y permanente a la que tenga derecho el personal afiliado en transición será el 100% del salario regulador establecidos en los artículos Octavo y Noveno Transitorios según corresponda sin que por ningún motivo la cuota máxima de pensión mensual pueda exceder de lo establecido en el párrafo 2 del artículo 41 de la presente Ley.
 ARTÍCULO DÉCIMO TERCERO. Para los efectos a que se refiere el artículo 55 de Ley del Instituto de Previsión y Seguridad Social del Estado de Tamaulipas, el monto de la pensión por fallecimiento a la que tengan derecho los derechohabientes del trabajador en transición fallecido, señalados en la fracción IX del artículo 5 del presente ordenamiento en el orden que se establece, será el 100% del salario regulador establecidos en los artículos Octavo y Noveno Transitorios según corresponda sin que por ningún motivo la cuota máxima de pensión mensual pueda exceder a lo establecido en el párrafo 2 del artículo 41 de la presente Ley.
 ARTÍCULO DÉCIMO CUARTO. Para los efectos a que se refiere el artículo 67 de la Ley del Instituto de Previsión y Seguridad Social del Estado de Tamaulipas, el monto de la pensión por invalidez permanente total por causas ajenas al trabajo a la que tenga derecho el personal afiliado en transición será el porcentaje que le corresponda en función de la antigüedad generada ante el Fondo de Pensiones, del salario regulador del trabajador en transición establecido en los artículos Octavo y Noveno Transitorios, según corresponda, sin que por ningún motivo la cuota máxima de pensión mensual pueda exceder lo establecido en el párrafo segundo del artículo 41 de esta Ley, y de acuerdo con la siguiente tabla:
