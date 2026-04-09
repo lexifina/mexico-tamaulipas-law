@@ -1,6 +1,5 @@
 [N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ORDENAMIENTO Y SUS DECRETOS DE MODIFICACIONES, SE SUGIERE CONSULTAR LOS ARTÍCULOS TRANSITORIOS CORRESPONDIENTES.]
 CONSTITUCIÓN POLÍTICA DEL ESTADO DE TAMAULIPAS
-[N. DE E. LA FE DE ERRATAS PUBLICADA EN EL P.O. EL 6 DE MARZO DE 2026 NO APLICA AL ARTICULADO DEL DECRETO PUBLICADO EN EL P.O. DE 3 DE MARZO DE 2026.]
 Constitución publicada en el Periódico Oficial del Gobierno de Tamaulipas, el 5 de febrero de 1921.
 JOSE MORANTE, Gobernador Provisional del Estado libre y soberano de Tamaulipas, a todos sus habitantes, sabed:
 Que el H. Congreso del Estado ha decretado lo siguiente:
