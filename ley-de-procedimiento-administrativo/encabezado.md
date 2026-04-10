@@ -1,6 +1,5 @@
 [N. DE E. DE CONFORMIDAD CON EL ARTÍCULO PRIMERO TRANSITORIO, LA PRESENTE LEY ENTRARÁ EN VIGOR DESPUÉS DE LOS TREINTA DÍAS SIGUIENTES A SU PUBLICACIÓN EN EL PERIÓDICO OFICIAL DEL ESTADO.]
 LEY DE PROCEDIMIENTO ADMINISTRATIVO PARA EL ESTADO DE TAMAULIPAS
-[N. DE E. CONTIENE LA FE DE ERRATAS PUBLICADA EN EL PERIÓDICO OFICIAL DEL 9 DE ENERO DE 2018.]
 Ley publicada en el Periódico Oficial del Gobierno del Estado de Tamaulipas, el martes 6 de junio de 2017.
 FRANCISCO JAVIER GARCÍA CABEZA DE VACA, Gobernador Constitucional del Estado Libre y Soberano de Tamaulipas, a sus habitantes hace saber:
 Que el Honorable Congreso del Estado, ha tenido a bien expedir el siguiente Decreto:
