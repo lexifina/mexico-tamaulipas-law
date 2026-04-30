@@ -1,0 +1,3 @@
+P.O. 29 DE ABRIL DE 2026.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. 66-1053 MEDIANTE EL CUAL SE REFORMA EL NUMERAL 2; Y SE ADICIONA UN NUMERAL 4, AL ARTÍCULO 146 DE LA LEY DE AGUAS DEL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.

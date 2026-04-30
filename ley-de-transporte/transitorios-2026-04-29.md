@@ -1,0 +1,3 @@
+P.O. 29 DE ABRIL DE 2026.
+[N. DE E. TRANSITORIO DEL "DECRETO No. 66-1052 MEDIANTE EL CUAL SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES A LA LEY DE TRANSPORTE DEL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico oficial del Estado.

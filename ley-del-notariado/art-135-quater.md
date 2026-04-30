@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 29 DE ABRIL DE 2026)
+ARTICULO 135 QUATER.
+La autoridad competente podrá decretar, de oficio o a petición de parte, las medidas de seguridad mencionadas. La determinación de medidas de seguridad se tramitará de manera incidental y deberá expresar los motivos que la justifican, así como señalar el nombre y domicilio de las personas que pudieran resultar afectadas, a quienes se dará vista para que, dentro del plazo de tres días hábiles, manifiesten lo que a su derecho convenga. La autoridad podrá decretar provisionalmente las medidas de seguridad cuando lo estime necesario.
+Concluido el plazo señalado, la autoridad resolverá dentro de los tres días hábiles siguientes mediante resolución interlocutoria, en la que determinará la procedencia, modificación o revocación de las medidas de seguridad, sin perjuicio de lo previsto en la Ley de Amparo.
+Las medidas de seguridad podrán suspenderse o modificarse cuando desaparezcan las causas que les dieron origen o cuando se otorgue garantía suficiente, previa calificación de la autoridad competente.

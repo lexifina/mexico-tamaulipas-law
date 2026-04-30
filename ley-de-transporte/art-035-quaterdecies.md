@@ -20,5 +20,9 @@ IV.- Someterse a las inspecciones que requiera la Subsecretaría de Transporte p
 V.- Abstenerse de ofertar sus servicios fuera de la plataforma tecnológica o en la vía pública;
 VI.- Abstenerse de fijar un lugar al que las posibles personas usuarias acudan a solicitar la prestación del servicio, hacer base, sitio o similares;
 VII.- Cubrir las contribuciones que le correspondan en términos de las disposiciones legales estatales aplicables en materia fiscal y hacendaria;
-VIII.- Abstenerse de subarrendar el vehículo o los vehículos registrados; y
-IX.- Contar con una póliza de seguro de cobertura vigente que cubra a todos los ocupantes del vehículo.
+(REFORMADA, P.O. 29 DE ABRIL DE 2026)
+VIII.- Abstenerse de subarrendar el vehículo o los vehículos registrados;
+(REFORMADA, P.O. 29 DE ABRIL DE 2026)
+IX.- Contar con una póliza de seguro de cobertura vigente que cubra a todos los ocupantes del vehículo; y
+(ADICIONADA, P.O. 29 DE ABRIL DE 2026)
+X.- Circular con las luces interiores encendidas durante el horario nocturno, mientras se encuentren ofreciendo el servicio.

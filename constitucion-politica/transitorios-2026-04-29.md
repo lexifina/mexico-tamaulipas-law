@@ -1,0 +1,3 @@
+P.O. 29 DE ABRIL DE 2026.
+[N. DE E. TRANSITORIO DEL "DECRETO No. 66-1048 MEDIANTE EL CUAL SE ADICIONA UN PÁRRAFO TERCERO A LA FRACCIÓN VI DEL ARTÍCULO 17, DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
