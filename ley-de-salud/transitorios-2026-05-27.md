@@ -1,0 +1,4 @@
+P.O. 27 DE MAYO DE 2026.
+[N. DE E. TRANSITORIOS DEL "DECRETO NO. 66-1061 MEDIANTE EL CUAL SE REFORMA EL INCISO T) Y SE ADICIONAN EL INCISO U), RECORRIÉNDOSE EL SUBSECUENTE EN SU ORDEN NATURAL, DE LA FRACCIÓN I DEL ARTÍCULO 3°; Y LA FRACCIÓN II BIS AL ARTÍCULO 33 DE LA LEY DE SALUD PARA EL ESTADO DE TAMAULIPAS".]
+ARTÍCULO PRIMERO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+ARTÍCULO SEGUNDO. La Secretaría de Salud del Estado deberá implementar lo dispuesto en el presente Decreto de manera progresiva, conforme a la disponibilidad presupuestal aprobada en el ejercicio fiscal correspondiente y atendiendo a la planeación administrativa y operativa que garantice la sostenibilidad y correcto funcionamiento de los bancos de leche humana en las unidades hospitalarias que cuenten con servicios neonatales.

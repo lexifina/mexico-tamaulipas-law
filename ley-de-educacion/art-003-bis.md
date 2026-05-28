@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 27 DE MAYO DE 2026)
+ARTÍCULO 3 BIS.
+1.- El Estado, a través de la Secretaría de Educación y en coordinación con la Secretaría de Bienestar Social, los municipios, las instituciones educativas y la sociedad civil, fomentará la educación artística y cultural como componente esencial de la formación integral de las y los educandos. Para tal efecto, se promoverá la realización sistemática de actividades, talleres, cursos, exposiciones y eventos en todas las disciplinas artísticas.
+2.- En este marco, se garantizará la utilización preferente, programada y accesible de los espacios culturales y educativos del Estado, tales como bibliotecas, teatros, museos y centros culturales, a fin de facilitar el acceso y la participación de la comunidad estudiantil y de la sociedad en general.
+3.- Durante el mes de abril de cada año, declarado como Mes del Arte en el Estado de Tamaulipas, las autoridades educativas coordinarán un programa anual de acciones que visibilice el talento local, promueva la formación artística y fomente la vinculación entre escuelas y espacios culturales.

@@ -1,0 +1,3 @@
+P.O. 27 DE MAYO DE 2026.
+[N. DE E. TRANSITORIO DEL "DECRETO No. 66-1060 MEDIANTE EL CUAL SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES DE LA LEY DE CULTURA FÍSICA Y DEPORTE PARA EL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
