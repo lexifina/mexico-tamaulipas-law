@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 29 DE MAYO DE 2026)
+Art. 25 Bis.- El presupuesto anual del Poder Legislativo no excederá del cero punto setenta por ciento del presupuesto de egresos del Estado.
+El Congreso deberá garantizar los principios de paridad, igualdad sustantiva y perspectiva de género, en su integración y funcionamiento.
