@@ -1,0 +1,4 @@
+P.O. 2 DE JUNIO DE 2026.
+[N. DE E. TRANSITORIOS DEL "DECRETO NO. 66-1082 MEDIANTE EL CUAL SE REFORMA EL ARTÍCULO 20, FRACCIÓN IV, PÁRRAFO SEXTO Y EL PÁRRAFO SÉPTIMO, INCISOS B) Y C); Y SE ADICIONA UN INCISO D) AL PÁRRAFO SÉPTIMO DEL ARTÍCULO 20, DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO DE TAMAULIPAS, EN MATERIA DE NULIDAD DE ELECCIONES POR INTERVENCIÓN O INJERENCIA EXTRANJERA".]
+ARTÍCULO PRIMERO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+ARTÍCULO SEGUNDO. El Instituto Electoral de Tamaulipas y el Tribunal Electoral del Estado de Tamaulipas, en el ámbito de sus respectivas competencias, deberán revisar y adecuar sus disposiciones normativas, reglamentarias y administrativas para garantizar el cumplimiento de lo previsto en el presente Decreto.
