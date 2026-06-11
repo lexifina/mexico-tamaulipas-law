@@ -1,0 +1,3 @@
+P.O. 10 DE JUNIO DE 2026.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. 66-1068 MEDIANTE EL CUAL SE REFORMAN, ADICIONAN Y DEROGAN DIVERSAS DISPOSICIONES A LA LEY DE AGUAS DEL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
