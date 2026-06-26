@@ -1,0 +1,3 @@
+P.O. 26 DE JUNIO DE 2026.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. 66-B1102 MEDIANTE EL CUAL SE REFORMAN Y ADICIONAN DIVERSOS ARTÍCULOS DE LA LEY DE CATASTRO PARA EL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación el Periódico Oficial del Estado.

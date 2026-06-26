@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 25 DE JUNIO DE 2026)
+ARTICULO 108 BIS.- Queda prohibida la reutilización de envases vacíos de bebidas alcohólicas destiladas en el Estado de Tamaulipas. Los productores, distribuidores y expendedores deberán garantizar la eliminación segura y obligatoria e inmediata, de dichos envases, mediante procesos de destrucción, reciclaje o cualquier otro mecanismo autorizado por la autoridad sanitaria competente, con el fin de prevenir la falsificación y adulteración de productos alcohólicos que representen un riesgo para la salud pública.
