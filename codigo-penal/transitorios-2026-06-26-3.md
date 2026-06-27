@@ -1,0 +1,3 @@
+P.O. 26 DE JUNIO DE 2026.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. 66-1120 MEDIANTE EL CUAL SE REFORMAN LOS ARTÍCULOS 192, PÁRRAFO PRIMERO Y 193, PÁRRAFO SEGUNDO, DEL CÓDIGO PENAL PARA EL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
