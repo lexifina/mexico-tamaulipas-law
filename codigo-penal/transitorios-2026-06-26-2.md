@@ -1,0 +1,5 @@
+P.O. 26 DE JUNIO DE 2026.
+[N. DE E. TRANSITORIOS DEL "DECRETO NO 66-1116 MEDIANTE EL CUAL SE REFORMAN LOS ARTÍCULOS 368 BIS, PÁRRAFO CUARTO, Y 368 QUÁTER, PÁRRAFO SEGUNDO, DEL CÓDIGO PENAL PARA EL ESTADO DE TAMAULIPAS; Y LOS ARTÍCULOS 13, FRACCIÓN II, INCISO B), Y 19, PÁRRAFO 1; Y SE ADICIONA UN PÁRRAFO 3 AL ARTÍCULO 19, DE LA LEY DE PREVENCIÓN DE LA VIOLENCIA FAMILIAR DEL ESTADO DE TAMAULIPAS".]
+ARTÍCULO PRIMERO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+ARTÍCULO SEGUNDO. En un plazo no mayor a 120 días naturales, las autoridades competentes deberán emitir los lineamientos para el contenido mínimo, evaluación y verificación de cumplimiento de la atención especializada y tratamiento integral como generadores de violencia familiar señalados en el presente Decreto.
+ARTÍCULO TERCERO. En un plazo no mayor a 180 días naturales, las instituciones responsables deberán habilitar o fortalecer la capacidad operativa para impartir la atención especializada y tratamiento integral como generadores de violencia familiar y rendir informes de cumplimiento a la autoridad jurisdiccional.

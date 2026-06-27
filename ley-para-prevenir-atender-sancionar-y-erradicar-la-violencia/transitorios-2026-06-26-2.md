@@ -1,0 +1,3 @@
+P.O. 26 DE JUNIO DE 2026.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. 66-1128 MEDIANTE EL CUAL SE REFORMA EL ARTÍCULO 3, INCISO E), DE LA LEY PARA PREVENIR, ATENDER, SANCIONAR Y ERRADICAR LA VIOLENCIA CONTRA LAS MUJERES".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.

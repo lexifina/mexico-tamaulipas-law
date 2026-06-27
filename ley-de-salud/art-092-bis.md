@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 26 DE JUNIO DE 2026)
+ARTICULO 92 BIS.- La Secretaría de Salud garantizará la atención médica integral a las personas, incluyendo servicios de prevención, diagnóstico y tratamiento de sus principales padecimientos de salud, con un enfoque de derechos humanos, igualdad y no discriminación.
+Asimismo, se prohíbe a cualquier institución de salud, ya sea pública o privada, negar, restringir o condicionar la prestación de servicios médicos a cualquier persona por su orientación sexual, identidad o expresión de género. El incumplimiento de esta disposición será sancionado conforme a la normatividad vigente en materia de salud y derechos humanos.
+La Secretaría de Salud implementará programas de capacitación y sensibilización para el personal médico y administrativo de los servicios de salud, con el fin de garantizar una atención digna, inclusiva y libre de prejuicios a todas las personas, sin distinción alguna.
