@@ -1,0 +1,3 @@
+P.O. 30 DE JUNIO DE 2026.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. 66-1346 MEDIANTE EL CUAL SE REFORMA LA FRACCIÓN XXXVII, DEL ARTÍCULO 29, DE LA LEY DEL SISTEMA DE SEGURIDAD PÚBLICA DEL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
