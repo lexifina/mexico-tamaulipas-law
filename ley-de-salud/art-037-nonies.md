@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 6 DE JULIO DE 2026)
+ARTICULO 37 NONIES.- La atención, prevención y seguimiento de la violencia obstétrica se desarrollará en coordinación con la Secretaría, el Sistema para el Desarrollo Integral de la Familia, la Procuraduría de Protección de Niñas, Niños y Adolescentes y el Instituto de la Mujer en Tamaulipas, para asegurar una respuesta integral, humanista y cercana a las mujeres que así lo requieran.

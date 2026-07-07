@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 6 DE JULIO DE 2026)
+ARTICULO 37 SEXIES.- La Secretaría emitirá, en coordinación con autoridades competentes, los protocolos técnicos para la atención respetuosa del embarazo, parto y puerperio, los cuales deberán encontrarse armonizados con las Normas Oficiales Mexicanas aplicables y deberán incluir herramientas de consentimiento informado, manejo del dolor, criterios de intervención obstétrica y rutas de remisión y contra referencia.

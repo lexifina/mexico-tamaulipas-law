@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 6 DE JULIO DE 2026)
+ARTÍCULO 35 BIS.
+La Secretaría de Turismo del Estado, en coordinación con la Secretaría de Desarrollo Urbano y Medio Ambiente y los municipios, promoverá acciones de reconocimiento, difusión y fortalecimiento de buenas prácticas ambientales en destinos turísticos del Estado, relacionadas con la limpieza de espacios públicos, reciclaje, manejo adecuado de residuos y protección de ecosistemas, conforme a la disponibilidad operativa, administrativa y presupuestal de las autoridades competentes, así como a los lineamientos que, en su caso, emitan las instancias correspondientes.

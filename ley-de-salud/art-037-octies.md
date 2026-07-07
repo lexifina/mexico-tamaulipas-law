@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 6 DE JULIO DE 2026)
+ARTICULO 37 OCTIES.- Se crea un mecanismo institucional accesible para la recepción de quejas por posibles casos de violencia obstétrica, que deberá garantizar atención inmediata, confidencialidad y medidas de protección a la víctima; la Secretaría coordinará la investigación administrativa cuando corresponda y dará vista a las autoridades competentes para la imposición de sanciones.

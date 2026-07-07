@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 6 DE JULIO DE 2026)
+ARTICULO 37 QUATER.- Las instituciones y el personal de salud, deberán garantizar el cumplimiento del consentimiento informado como proceso continuo, ofrecer alternativas de atención que privilegien el menor intervencionismo compatible con la seguridad clínica, permitir el acompañamiento de la persona de confianza, abstenerse de prácticas coercitivas o denigrantes y registrar debidamente en el expediente clínico las decisiones, procedimientos y motivos clínicos que se adopten.

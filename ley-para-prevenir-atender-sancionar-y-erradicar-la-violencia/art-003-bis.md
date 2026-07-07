@@ -43,5 +43,3 @@ XIX. Sistema Nacional: El Sistema Nacional para Prevenir, Atender, Sancionar y E
 XX. Víctima: La mujer de cualquier edad a quien se le inflige cualquier tipo de violencia; y
 (ADICIONADA [N. DE E. REFORMADA], P.O. 25 DE JUNIO DE 2026)
 XXI. Violencia contra las mujeres: Cualquier conducta de acción o conducta, basada en su género, que cause muerte, daño o sufrimiento psicológico, físico, patrimonial, económico, sexual, obstétrica o diversa en la mujer, tanto en el ámbito privado como en el público.
-Capítulo II
-Modalidades de la violencia

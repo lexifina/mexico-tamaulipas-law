@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 6 DE JULIO DE 2026)
+ARTICULO 37 QUINQUIES.- Se prohíbe expresamente la realización de procedimientos obstétricos sin consentimiento, la utilización de lenguaje humillante o denigrante, la negación injustificada de alivio del dolor, la separación del recién nacido sin causa médica, la realización de intervenciones de reparación tisular sin anestesia adecuada cuando corresponda, y cualquier práctica que implique trato degradante hacia la mujer.

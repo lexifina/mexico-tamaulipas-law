@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 6 DE JULIO DE 2026)
+ARTICULO 37 TER.- Se reconoce que toda mujer tiene derecho a recibir una atención respetuosa, segura y basada en evidencia científica, a la información comprensible y oportuna, a otorgar o negar su consentimiento de manera libre y voluntaria, a ser acompañada durante el proceso del parto y a que se respete su integridad, intimidad y confidencialidad profesional.

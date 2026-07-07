@@ -1,0 +1,4 @@
+(DEROGADO SEGUNDO PÁRRAFO, P.O. 6 DE JULIO DE 2026)
+(ADICIONADO, P.O. 6 DE JULIO DE 2026)
+ARTICULO 207-SEPTIES.- Al que estando autorizado para acceder a sistemas, equipos o medios de almacenamiento informáticos en materia de seguridad pública, indebidamente obtenga, copie, utilice, revele o transfiera información reservada o confidencial que comprometa la seguridad de las instituciones, operativos o la integridad de las personas, se le impondrá una pena de cuatro a ocho años de prisión y multa de cuatrocientas a ochocientas veces el valor diario de la Unidad de Medida y Actualización.
+Si el responsable es o hubiese sido servidor público en una institución de seguridad pública, las penas se incrementarán hasta en una mitad y destitución e inhabilitación por un plazo igual al de la pena resultante para desempeñarse en otro empleo, puesto, cargo o comisión pública.
