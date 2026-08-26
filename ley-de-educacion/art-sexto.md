@@ -1,1 +1,0 @@
-ARTÍCULO SEXTO. Los derechos de los Trabajadores de la Educación adquiridos con anterioridad a la entrada en vigor del presente Decreto continuarán vigentes conforme a los reglamentos, acuerdos y demás disposiciones de carácter general en los cuales se hubieren fundado.

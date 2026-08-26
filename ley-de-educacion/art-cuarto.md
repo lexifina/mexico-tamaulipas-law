@@ -1,1 +1,0 @@
-ARTÍCULO CUARTO. Los trámites y procesos administrativos iniciados con anterioridad a la entrada en vigor del presente Decreto, deberán concluirse y ejecutarse, respectivamente, conforme las disposiciones vigentes antes de la entrada en vigor del presente Decreto.

@@ -1,1 +1,0 @@
-ARTÍCULO QUINTO. Las autoridades correspondientes deberán respetar íntegramente los derechos de los trabajadores de la educación y reconocer la titularidad de las relaciones laborales colectivas existentes con el Sindicato Nacional de Trabajadores de la Educación, en los términos de su registro vigente, en los términos de las disposiciones legales correspondientes.

@@ -1,1 +1,0 @@
-ARTÍCULO OCTAVO. El Sistema Tamaulipeco de Formación Continua y Desarrollo Profesional Docente, previsto en el artículo 82 del presente Decreto deberá instalarse a los 90 días de la entrada en vigor del presente Decreto.

@@ -1,1 +1,0 @@
-ARTÍCULO NOVENO. En tanto se expiden los lineamientos previstos en el artículo 103 de la Ley General de Educación y se realicen las adecuaciones normativas aplicables, la instancia que realizará las actividades correspondientes en materia de infraestructura educativa señalada en el artículo 93 de la presente Ley, será el Instituto Tamaulipeco de Infraestructura Física Educativa.
