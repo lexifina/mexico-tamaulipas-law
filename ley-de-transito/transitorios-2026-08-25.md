@@ -1,0 +1,6 @@
+P.O. 25 DE AGOSTO DE 2026.
+[N. DE E. TRANSITORIOS DEL "DECRETO NO. 66-1378 MEDIANTE EL CUAL SE ADICIONA UN ARTÍCULO 25 TER A LA LEY DE TRÁNSITO".]
+ARTÍCULO PRIMERO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+ARTÍCULO SEGUNDO. Los ayuntamientos del Estado contarán con un plazo no mayor de noventa días naturales, contados a partir de la entrada en vigor del presente Decreto, para expedir, adecuar y publicar las disposiciones reglamentarias necesarias para su cumplimiento, dentro del ámbito de sus respectivas competencias.
+Las disposiciones reglamentarias deberán prever, al menos, el procedimiento para el retiro de objetos; el levantamiento de la constancia y del inventario correspondiente; su traslado, resguardo, devolución y destino final; la identificación y notificación de la persona responsable; las medidas o sanciones administrativas aplicables, así como los medios de defensa procedentes.
+ARTÍCULO TERCERO. En tanto se realiza la armonización señalada en el artículo anterior, continuarán aplicándose las disposiciones municipales vigentes en materia de tránsito, movilidad, estacionamiento y utilización de la vía pública, en todo aquello que no se oponga al presente Decreto.

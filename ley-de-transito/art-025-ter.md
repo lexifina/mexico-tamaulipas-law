@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 25 DE AGOSTO DE 2026)
+ARTICULO 25 TER.- Queda prohibido a cualquier persona colocar, instalar o mantener en la vía pública objetos, señales, estructuras o dispositivos con el propósito de reservar, apartar o impedir el libre uso de espacios en los que esté permitido el estacionamiento, salvo que medie autorización vigente de la autoridad competente.
+Las autoridades de tránsito, dentro del ámbito de su competencia, retirarán los objetos colocados en contravención a este artículo cuando constituyan una obstrucción, dejando constancia de la diligencia y observando el procedimiento de resguardo, reclamación y destino previsto en las disposiciones reglamentarias aplicables.
+Cuando se identifique a la persona responsable, se iniciará el procedimiento administrativo correspondiente y, en su caso, se impondrán las medidas o sanciones previstas en la normativa aplicable, con respeto a las formalidades esenciales del procedimiento.
