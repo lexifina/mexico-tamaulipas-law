@@ -30,3 +30,6 @@ XXVI. Participar en sistemas de coordinación institucional, consejos, comités,
 XXVII. Proponer a la Gobernadora o Gobernador del Estado los programas, estrategias, proyectos prioritarios y acciones transversales en materia de innovación, inteligencia digital, gobierno digital, simplificación, digitalización y desarrollo tecnológico gubernamental;
 XXVIII. Formular, proponer, ejecutar, dar seguimiento y evaluar los planes, programas, estrategias, proyectos y acciones estatales en las materias de su competencia, en congruencia con el Plan Estatal de Desarrollo y demás instrumentos de planeación aplicables; y
 XXIX. Las demás que le señalen las leyes, reglamentos y otras disposiciones jurídicas, así como las que le encomiende la Gobernadora o Gobernador del Estado con relación a sus competencias.
+(ADICIONADA CON EL ARTÍCULO QUE LA INTEGRA, P.O. 18 DE AGOSTO DE 2026)
+Sección XIX
+De la Secretaría de las Mujeres

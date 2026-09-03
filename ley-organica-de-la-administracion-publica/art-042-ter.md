@@ -1,0 +1,29 @@
+(ADICIONADO, P.O. 18 DE AGOSTO DE 2026)
+ARTÍCULO 42 TER.
+A la Secretaría de las Mujeres le corresponderá el despacho de los siguientes asuntos:
+I. Formular, conducir, coordinar, ejecutar, dar seguimiento y evaluar la política estatal en materia de igualdad sustantiva entre mujeres y hombres;
+II. Formular, articular, fortalecer, vigilar y monitorear políticas públicas con perspectiva de género, enfoque interseccional y de derechos humanos para garantizar la igualdad sustantiva, el acceso de las mujeres a una vida libre de violencias y el impulso al sistema público de cuidados;
+III. Incorporar y coordinar la transversalización de la perspectiva de género en la planeación, programación, presupuestación, ejecución y evaluación de las políticas públicas de la Administración Pública Estatal;
+IV. Diseñar, implementar y evaluar acciones afirmativas, programas, proyectos y estrategias orientadas al avance de los derechos humanos de las mujeres y la reducción de brechas de desigualdad;
+V. Coordinar acciones para prevenir, atender, sancionar y contribuir a erradicar las violencias contra las mujeres, promoviendo mecanismos de actuación interinstitucional;
+VI. Elaborar, conducir y dar seguimiento a los programas estatales en materia de igualdad sustantiva y de prevención, atención, sanción y erradicación de las violencias contra las mujeres;
+VII. Coordinar la operación, seguimiento y evaluación del Sistema Estatal para la Igualdad entre Mujeres y Hombres y promover el cumplimiento de sus acuerdos e instrumentos;
+VIII. Coordinar, en el ámbito de su competencia, las acciones derivadas del Sistema Estatal para Prevenir, Atender, Sancionar y Erradicar la Violencia contra las Mujeres;
+IX. Coordinar la elaboración, implementación, seguimiento y evaluación de los sistemas estatales, comités y grupos vinculados con los derechos de las mujeres así como, de manera permanente con las autoridades de procuración y administración de justicia y en su caso, coadyuvar con las autoridades competentes en la implementación de acciones para fortalecer el acceso a la justicia de mujeres y niñas en el Estado;
+X. Diseñar e implementar programas de formación, capacitación, sensibilización, profesionalización y certificación dirigidos a personas servidoras públicas y población en general;
+XI. Impulsar mecanismos institucionales que incorporen la perspectiva de género en la gestión pública estatal;
+XII. Promover que los medios de comunicación masiva y los entes públicos fomenten una cultura que elimine estereotipos e imágenes que atenten contra la dignidad de las mujeres; propiciar y difundir masivamente la cultura de no violencia contra las mujeres, de igualdad, lenguaje incluyente y no discriminación;
+XIII. Promover programas y acciones para fortalecer el acceso de las mujeres a la salud integral y al ejercicio pleno de sus derechos sexuales y reproductivos, en coordinación con la Secretaría de Salud e instituciones que integran el Sistema Estatal de Salud;
+XIV. Promover y proponer acciones orientadas a fortalecer la autonomía económica, inclusión productiva, empleo digno y desarrollo integral de las mujeres, en coordinación con la Secretaría del Trabajo y Previsión Social, así como el Servicio Nacional del Empleo;
+XV. Impulsar mecanismos para el reconocimiento, redistribución y fortalecimiento social del cuidado;
+XVI. Proponer a la persona titular del Ejecutivo Estatal los proyectos de iniciativas de leyes, decretos, reglamentos y acuerdos sobre los asuntos de las competencias de la Secretaría;
+XVII. Promover, concertar y suscribir convenios de colaboración, así como demás instrumentos jurídicos con autoridades federales, estatales, municipales, organismos autónomos, instituciones académicas y sectores social y privado;
+XVIII. Generar, integrar, sistematizar y difundir información, indicadores y estadísticas para el diseño y evaluación de políticas públicas;
+XIX. Coordinar los mecanismos estatales de registro, análisis e intercambio de información sobre violencia contra las mujeres;
+XX. Coordinar la integración, actualización, seguimiento y aprovechamiento de la información que corresponda al Estado en el Banco Nacional de Datos e Información sobre Casos de Violencia contra las Mujeres (BANAVIM);
+XXI. Elaborar diagnósticos, estudios e investigaciones que contribuyan al diseño y fortalecimiento de políticas públicas para el adelanto de las mujeres;
+XXII. Promover y realizar campañas de sensibilización, prevención de las violencias y difusión de los derechos de las mujeres en la administración pública estatal, así como la colaboración de los sectores privado y social;
+XXIII. Promover el cumplimiento de los instrumentos internacionales en materia de igualdad sustantiva y derechos humanos de las mujeres que resulten aplicables al Estado;
+XXIV. Promover la coordinación con las Instancias Municipales de las Mujeres, mediante mecanismos de articulación institucional, asistencia técnica, seguimiento y evaluación, expresamente dentro del ámbito de sus respectivas competencias y con respeto a la autonomía municipal, para fortalecer la implementación territorial de la política estatal en materia de igualdad sustantiva, prevención y atención de las violencias contra las mujeres;
+XXV. Representar al Titular del Ejecutivo del Estado, por conducto de la persona titular de la Secretaría, ante las instancias públicas y privadas, organismos nacionales e internacionales, así como ante los mecanismos de coordinación, concertación y participación relacionados con la igualdad sustantiva, la perspectiva de género, la prevención, atención, sanción y erradicación de la violencia contra las mujeres, y demás asuntos inherentes al ámbito de competencia de la Secretaría, de conformidad con la legislación aplicable; y
+XXVI. Las demás que establezcan esta Ley, otras disposiciones jurídicas aplicables y las que le encomiende la persona Titular del Ejecutivo del Estado.
