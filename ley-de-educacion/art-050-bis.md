@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 27 DE MAYO DE 2026)
+ARTÍCULO 50 BIS.
+Para fortalecer la protección del entorno escolar, las autoridades educativas del Estado promoverán, en coordinación con la Secretaría de Salud, la capacitación en materia de primeros auxilios dirigida al personal directivo, docente y administrativos de las instituciones educativas públicos y privados. Dicha capacitación deberá impartirse, al menos, dos veces durante cada ciclo escolar e incluir contenidos teórico-prácticos sobre atención inmediata ante emergencias, con el objeto de salvaguardar la integridad física y emocional de la comunidad escolar.

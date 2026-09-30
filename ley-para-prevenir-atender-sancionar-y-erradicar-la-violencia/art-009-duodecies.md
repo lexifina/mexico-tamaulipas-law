@@ -5,7 +5,8 @@ I. La reserva del domicilio, lugar de trabajo, profesión o cualquier otro dato 
 II. El uso de medios o dispositivos electrónicos para impedir el contacto directo de la persona agresora con la víctima;
 III. Entrega inmediata de objetos de uso personal y documentos de identidad de la víctima y en su caso, de sus hijas e hijos; y
 IV. Medidas para evitar que se capten y/o se transmitan por cualquier medio o tecnologías de la información y la comunicación, imágenes de la mujer en situación de violencia que permitan su identificación o la de sus familiares.
-2. Tratándose de niñas hay una prohibición absoluta de transmitir datos e imágenes que permitan su identificación, con base en lo siguiente:
+(REFORMADO [N. DE E. ESTE PÁRRAFO], P.O. 29 DE SEPTIEMBRE DE 2026)
+2.- Tratándose de niños, niñas, adolescentes y demás personas agredidas, hay una prohibición absoluta de transmitir datos e imágenes que permitan su identificación; de igual manera, como medida de protección, al tratarse de casos de peligro inminente o extrema urgencia, podrán tomarse las siguientes acciones:
 I. Prohibir el acceso a la persona agresora al domicilio, permanente o temporal de la mujer, o la niña, en situación de violencia, así como acercarse al lugar de trabajo, estudio o cualquier lugar que frecuente;
 II. Embargo preventivo de bienes de la persona agresora, a efecto de garantizar las obligaciones alimentarias;
 III. La desocupación por la persona agresora, del domicilio conyugal o de pareja, independientemente de la acreditación de propiedad o posesión del inmueble, aún en los casos de arrendamiento del mismo, y en su caso el reingreso de la mujer en situación de violencia una vez que se resguarde su seguridad;

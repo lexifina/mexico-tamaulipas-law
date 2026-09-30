@@ -1,0 +1,1 @@
+ARTÍCULO TERCERO. El Ejecutivo del Estado y la Secretaría de Educación del Estado, en su caso, deberán emitir la normatividad necesaria para dar cumplimiento al presente Decreto en un plazo que no exceda de un año contado a partir de la entrada en vigor del presente Decreto.

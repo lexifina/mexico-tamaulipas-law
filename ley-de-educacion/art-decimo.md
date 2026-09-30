@@ -1,0 +1,1 @@
+ARTÍCULO DÉCIMO. La Secretaría, propondrá al Consejo Estatal de Autoridades Educativas en la sesión inmediata que corresponda a la entrada en vigor del presente Decreto, los lineamientos para su operación y funcionamiento.

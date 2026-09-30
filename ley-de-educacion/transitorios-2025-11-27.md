@@ -1,0 +1,3 @@
+P.O. 27 DE NOVIEMBRE DE 2025.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. 66-558 MEDIANTE EL CUAL SE REFORMAN LOS ARTÍCULOS 10, FRACCIÓN III; 11, FRACCIÓN IV; 13, FRACCIÓN VIII; Y 14, FRACCIÓN V, DE LA LEY DE EDUCACIÓN PARA EL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.

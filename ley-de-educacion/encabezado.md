@@ -1,7 +1,8 @@
-REGLAMENTO DE LA COMISIÓN CERTIFICADORA DE COMPETENCIA LABORAL DE LOS SERVIDORES PÚBLICOS DEL ESTADO DE MÉXICO
-N. DE E. DE CONFORMIDAD CON EL TRANSITORIO TERCERO DEL REGLAMENTO DE LA COMISIÓN CERTIFICADORA DE COMPETENCIA LABORAL DE LOS SERVIDORES PÚBLICOS DEL ESTADO DE MÉXICO, PUBLICADO EN LA G.G. DE 19 DE MAYO DE 2014, EL PRESENTE ORDENAMIENTO HA SIDO ABROGADO.
-Reglamento publicado en la Sección Tercera de la Gaceta del Gobierno del Estado de México, el martes 9 de agosto de 2011.
-EL CONSEJO DIRECTIVO DEL INSTITUTO HACENDARIO DEL ESTADO DE MÉXICO, EN EJERCICIO DE LA FACULTAD QUE LE CONFIERE EL ARTÍCULO 253 FRACCIÓN X DEL CÓDIGO FINANCIERO DEL ESTADO DE MÉXICO Y MUNICIPIOS; Y
-C O N S I D E R A N D O.
-Que en razón de que el Instituto Nacional para el Federalismo y el Desarrollo Municipal, entregó para uso y custodia del Instituto Hacendario del Estado de México las Normas Institucionales de Competencia Laboral "Impulso al Desarrollo Económico del Municipio"; "Administración de Servicios Públicos Municipales" y "Funciones Básicas de la Secretaría del Ayuntamiento" y que en el ámbito de actuación de la hacienda pública municipal, adquieren especial relevancia las funciones de la contraloría municipal; además, el Instituto Hacendario del Estado de México promovió la elaboración de la Norma Institucional de Competencia Laboral "Funciones de la Contraloría Municipal", con lo que se amplía este modelo en el servicio público municipal; derivado de lo anterior, y ante la necesidad de contar con reglas más prácticas y claras, para la operatividad de la Comisión Certificadora de Competencia Laboral de los Servidores Públicos del Estado de México, tiene a bien aprobar el:
-REGLAMENTO DE LA COMISIÓN CERTIFICADORA DE COMPETENCIA LABORAL DE LOS SERVIDORES PÚBLICOS DEL ESTADO DE MÉXICO
+LEY DE EDUCACIÓN PARA EL ESTADO DE TAMAULIPAS
+Ley publicada en la Edición Vespertina Número 101 del Periódico Oficial del Estado de Tamaulipas, el miércoles 23 de agosto de 2023.
+AMÉRICO VILLARREAL ANAYA, Gobernador Constitucional del E9stado de Tamaulipas, a sus habitantes hace saber:
+Que el Honorable Congreso del Estado, ha tenido a bien expedir el siguiente Decreto:
+Al margen un sello que dice:- "Estados Unidos Mexicanos.- Gobierno de Tamaulipas.- Poder Legislativo.
+LA LEGISLATURA SESENTA Y CINCO CONSTITUCIONAL DEL CONGRESO DEL ESTADO LIBRE Y SOBERANO DE TAMAULIPAS, EN USO DE LAS FACULTADES QUE LE CONFIEREN LOS ARTÍCULOS 58, FRACCIÓN I DE LA CONSTITUCIÓN POLÍTICA LOCAL; Y 119 DE LA LEY SOBRE LA ORGANIZACIÓN Y FUNCIONAMIENTO INTERNOS DEL CONGRESO DEL ESTADO LIBRE Y SOBERANO DE TAMAULIPAS, TIENE A BIEN EXPEDIR EL SIGUIENTE:
+D E C R E T O No. 65-624
+MEDIANTE EL CUAL SE EXPIDE LA LEY DE EDUCACIÓN PARA EL ESTADO DE TAMAULIPAS.
