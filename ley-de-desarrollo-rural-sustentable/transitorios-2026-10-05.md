@@ -1,0 +1,4 @@
+P.O. 5 DE OCTUBRE DE 2026.
+[N. DE E. TRANSITORIOS DEL "DECRETO NO. 66-1405 MEDIANTE EL CUAL SE REFORMAN LAS FRACCIONES XVI Y XVII, Y SE ADICIONA UNA FRACCIÓN XVIII AL ARTÍCULO 6, DE LA LEY DE DESARROLLO RURAL SUSTENTABLE DEL ESTADO DE TAMAULIPAS".]
+ARTÍCULO PRIMERO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+ARTÍCULO SEGUNDO. El Ejecutivo del Estado, a través de la Secretaría de Desarrollo Rural, Pesca y Acuacultura y en coordinación con la Secretaría de Desarrollo Económico, promoverá la celebración de convenios de colaboración con el Instituto Mexicano de la Propiedad Industrial y demás instancias competentes, así como la adecuación de sus programas institucionales, a fin de dar cumplimiento a las acciones de fomento, acompañamiento y protección agroalimentaria previstas en el presente Decreto.

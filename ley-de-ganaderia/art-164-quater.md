@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 5 DE OCTUBRE DE 2026)
+Artículo 164 Quater. Los rastros municipales deberán implementar medidas de prevención en materia de salud pública, orientadas a evitar la transmisión de enfermedades de origen animal a las personas, incluyendo sanitario, veterinaria, acciones de inspección de control médico, manejo adecuado de residuos y disposición final conforme a la normatividad aplicable.

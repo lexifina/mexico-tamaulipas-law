@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 5 DE OCTUBRE DE 2026)
+Artículo 164 Ter. Los rastros municipales y privados deberán cumplir obligatoriamente con las Normas Oficiales Mexicanas, en materia de sanidad, inocuidad y bienestar animal, así como aquellas que emita la Secretaría, además, se procurará que las instalaciones cumplan con los estándares de los establecimientos Tipo Inspección Federal (TIF) para garantizar la calidad de los productos cárnicos destinados al consumo humano y con ello proteger la salud pública y el bienestar animal.

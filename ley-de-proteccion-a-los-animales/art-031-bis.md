@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 5 DE OCTUBRE DE 2026)
+ARTICULO 31 BIS.- Los establecimientos dedicados a la venta de animales de compañía colaborarán con asociaciones protectoras de animales legalmente constituidas para promover la cultura de la adopción responsable. Esta colaboración se realizará mediante la difusión de información en espacios visibles dentro del establecimiento, así como a través de medios digitales o tecnológicos disponibles, sin que ello implique la obligación de resguardar físicamente a los ejemplares en sus instalaciones.
+Las autoridades estatales de bienestar animal serán responsables de supervisar el cumplimiento de lo dispuesto en este artículo, garantizando que la actividad comercial se vincule con la protección y trato digno de los animales.
