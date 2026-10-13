@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 12 DE OCTUBRE DE 2026)
+ARTICULO 61 BIS.- La Secretaría impulsará acciones y programas orientados a la atención, acompañamiento y protección de la salud mental del personal médico que labore en instituciones públicas de salud del Estado, así como de sus familiares directos en primer grado, mediante servicios de orientación psicológica, contención emocional y prevención del desgaste profesional, en coordinación con las instituciones competentes.
