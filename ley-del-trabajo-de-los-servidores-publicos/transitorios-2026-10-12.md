@@ -1,0 +1,3 @@
+P.O. 12 DE OCTUBRE DE 2026.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. 66-1424 MEDIANTE EL CUAL SE REFORMAN LOS ARTÍCULOS 18 Y 19, DE LA LEY DEL TRABAJO DE LOS SERVIDORES PÚBLICOS DEL ESTADO DE TAMAULIPAS".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
