@@ -1,0 +1,11 @@
+{
+  "path": "mx-tam",
+  "code": "MX-TAM",
+  "name": "Tamaulipas",
+  "level": "state",
+  "parent": "mx",
+  "repo": "https://github.com/lexifina/mexico-tamaulipas-law",
+  "build": "built: constitution, codes and laws (157 ordenamientos, 2260 versions) from SCJN Legislación",
+  "language": "es",
+  "sources": 1
+}
